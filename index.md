@@ -59,7 +59,7 @@ BurgerKing China: waiter 1 month 2016
 
 (My mum asked me to work in le bank au open a 24h magazine, I refused.)
 
-Chinese restaurant in China, 20 staffs: tournant 1 month 2016 video for BK
+Chinese restaurant in China, 20 staffs: tournant 1 month 2016 [video for BK]()
 
 Chinese restautant in China, 40 staffs: poissonnier 1 month 2015
 
@@ -73,9 +73,9 @@ Dr William Keep, New Jersey Business school
 
 Dr Hungchuan Yu, Bournmouth Univerisity
 
-## education
+### education
 
-2015 Cardiff University, International Journalism, postgraduate diploma certificate
+2015 Cardiff University, International Journalism, postgraduate diploma [certificate]()
 
 I did want to have a film study art degree. I got practical training as a newspaper journalist. I could write short news, investigative feature in English.
 
