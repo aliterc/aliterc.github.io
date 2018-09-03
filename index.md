@@ -44,7 +44,7 @@ I'm hosted with GitHub Pages.
 
 ## Ze Li
 
-_I am a senior media company manager working for Wong Yong and Zhu Chen magazine. After graduated from Cardiff University with a failed dissertation talking about frauds endlessly, lacking journalistic skills, I got an offer from Vancouver Film School for film production. I read The Guardian film reviews. I have applied for NYU Tisch school twice. I don't read entertainment news. I know a little about lightning and sculpting. Dr Richard Clayton from Cambridge Univeristy once gave me an interview. I had shortly stayed in print shops and then wanted to make my own weekly online channel SEV7ENPLUS. After that, I shot photos and shared them online COVELNEPTUNE with a moving workstation. I found that I hardly know any Americans though film making really needs Americans._
+_I am a senior media company manager working for Wong Yong and Zhu Chen magazine. After graduated from Cardiff University with a failed dissertation talking about frauds endlessly, lacking journalistic skills, I got an offer from Vancouver Film School for film production. I read The Guardian film reviews. I have applied for NYU Tisch school twice. I don't read entertainment news. I know a little about lightning and sculpting. Dr Richard Clayton from Cambridge Univeristy once gave me an [interview](https://wordpress.com/post/allenneptune.wordpress.com/539). I had shortly stayed in print shops and then wanted to make my own weekly online channel SEV7ENPLUS. After that, I shot photos and shared them online COVELNEPTUNE with a moving workstation. I found that I hardly know any Americans though film making really needs Americans._
 
 phone: 86 18217 325 136
 
