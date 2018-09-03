@@ -41,15 +41,15 @@ I would like to have an office job in a foreign fortune 500 company.
 
 I'm hosted with GitHub Pages.
 
-Ze Li
+## Ze Li
 
-I am a senior media company manager working for Wong Yong and Zhu Chen magazine. After graduated from Cardiff University with a failed dissertation talking about frauds endlessly, lacking journalistic skills, I got an offer from Vancouver Film School for film production. I read The Guardian film reviews. I have applied for NYU Tisch school twice. I don't read entertainment news. I know a little about lightning and sculpting. Dr Richard Clayton from Cambridge Univeristy once gave me an interview. I had shortly stayed in print shops and then wanted to make my own weekly online channel. After that, I shot photos and shared them online with a moving workstation. I found that I hardly know any Americans though film making really needs Americans.
+_I am a senior media company manager working for Wong Yong and Zhu Chen magazine. After graduated from Cardiff University with a failed dissertation talking about frauds endlessly, lacking journalistic skills, I got an offer from Vancouver Film School for film production. I read The Guardian film reviews. I have applied for NYU Tisch school twice. I don't read entertainment news. I know a little about lightning and sculpting. Dr Richard Clayton from Cambridge Univeristy once gave me an interview. I had shortly stayed in print shops and then wanted to make my own weekly online channel. After that, I shot photos and shared them online with a moving workstation. I found that I hardly know any Americans though film making really needs Americans._
 
 phone: 86 18217 325 136
 
 address
 
-work experience
+### work experience
 
 unemployed, supported by friends and families 2017-
 
@@ -67,13 +67,13 @@ Chinese hotel restaurant in China, 50 staffs: apprenti 1 month 2015
 
 Chinese traditional bakery in China, 40 staffs: 1 month 2015
 
-reference
+### reference
 
 Dr William Keep, New Jersey Business school
 
 Dr Hungchuan Yu, Bournmouth Univerisity
 
-education
+## education
 
 2015 Cardiff University, International Journalism, postgraduate diploma certificate
 
