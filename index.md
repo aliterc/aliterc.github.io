@@ -99,7 +99,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 - travel to every corner of the earth. visa. ABROAD. EXPENSIVE.
 - insider, have books. powerful, in an industry for a long time. 
 - go hunting. ABROAD.
-- change nationality asap. ABROAD. EXPENSIVE.
+- change nationality asap. ABROAD. EXPENSIVE, 6,000,000 CAD.
 - build a building of my own. buy lands. EXPENSIVE.
 - publishing. 
 - have a veta or become peter jackson. needs co-workers. EXTREMELY EXPENSIVE.
