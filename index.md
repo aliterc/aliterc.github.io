@@ -83,3 +83,25 @@ I did want to have a film study art degree. I got practical training as a newspa
 2011 China University of Political, Science and Law, business management, bacholar degree
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
+
+### trades
+- be happy.
+- taller. sleep at the same time, go to gym.
+- build a website.
+- have a chef certificate. get prepared. 
+- become head of McDoanld's. not really in a restaurant. could be a museum guide for kids. 
+- become a lovely teacher. needs a certificate. 
+- become a crazy fan.
+- find an office job in fortune 500 companies. just apply.
+- have an engineer degree.
+- open a shopp selling cards, cakes, flowers. needs co-founders. 
+- professioanlly trained in an art school. apply.
+- travel to every corner of the earth. visa.
+- insider, have books. powerful, in an industry for a long time. 
+- go hunting.
+- changing nationality asap. 
+- build a building of my own. buy lands.
+- publishing. 
+- have a veta or become peter jackson. needs co-workers.
+- space travel. 
+- lunchbox food porn. married, in a job and house owner.
