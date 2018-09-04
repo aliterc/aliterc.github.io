@@ -99,7 +99,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 - travel to every corner of the earth. visa.
 - insider, have books. powerful, in an industry for a long time. 
 - go hunting.
-- changing nationality asap. 
+- change nationality asap. 
 - build a building of my own. buy lands.
 - publishing. 
 - have a veta or become peter jackson. needs co-workers.
