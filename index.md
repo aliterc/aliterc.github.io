@@ -86,22 +86,22 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 ### trades
 - be happy.
-- taller. sleep at the same time, go to gym.
+- taller. sleep at the same time, go to gym. 
 - build a website.
 - have a chef certificate. get prepared. 
-- become head of McDoanld's. not really in a restaurant. could be a museum guide for kids. 
+- become head of McDoanld's. not really in a restaurant. could be a museum guide for kids. ABROAD.
 - become a lovely teacher. needs a certificate. 
 - become a crazy fan.
 - find an office job in fortune 500 companies. just apply.
 - have an engineer degree.
-- open a shopp selling cards, cakes, flowers. needs co-founders. 
-- professioanlly trained in an art school. apply.
-- travel to every corner of the earth. visa.
+- open a shopp selling cards, cakes, flowers. needs permits and co-founders. 
+- professioanlly trained in an art school. apply. ABROAD.
+- travel to every corner of the earth. visa. ABROAD. EXPENSIVE.
 - insider, have books. powerful, in an industry for a long time. 
-- go hunting.
-- change nationality asap. 
-- build a building of my own. buy lands.
+- go hunting. ABROAD.
+- change nationality asap. ABROAD. EXPENSIVE.
+- build a building of my own. buy lands. EXPENSIVE.
 - publishing. 
-- have a veta or become peter jackson. needs co-workers.
-- space travel. 
+- have a veta or become peter jackson. needs co-workers. EXTREMELY EXPENSIVE.
+- space travel. EXTREMELY EXPENSIVE. 
 - lunchbox food porn. married, in a job and house owner.
