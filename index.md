@@ -157,7 +157,7 @@ https://allenneptune.wordpress.com/2018/05/09/a-new-novel-just-started/
 
 https://allenneptune.wordpress.com/2018/06/12/966/
 
-###怎样画TIN TIN
+### 怎样画TIN TIN
 Posted by allenneptune on 01/05/2018
 我很小的时候，其实想做个画家。
 后来我越来越远了。现在基本不愿意画画。
