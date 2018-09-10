@@ -38,6 +38,11 @@ Having trouble with Pages? Check out our [documentation](https://help.github.com
 
 ![image](https://allenneptune.files.wordpress.com/2018/05/screenshot1.png?w=221&h=300) 
 https://helpx.adobe.com/dreamweaver/tutorials.html
+http://support.nextlimit.com/display/rf2014docs/RealFlow+2014+Documentation
+http://help.autodesk.com/view/MAYAUL/2018/ENU/?guid=GUID-840DB5D4-05DB-4340-9A59-D2C7B2343EA4
+(https://knowledge.autodesk.com/support/autocad
+http://pixologic.com/zclassroom/)
+https://helpx.adobe.com/after-effects/user-guide.html
 
 - Hello World
 
