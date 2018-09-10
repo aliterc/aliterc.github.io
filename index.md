@@ -475,3 +475,17 @@ Susan Perkin’s girlfriend attacked the wine shop girl one night. They were fig
 
 Lesbian is les bian, which means the good.
 
+### EAT, DRINK, MAN, WOMAN 1994 REVIEW
+Posted by allenneptune on 05/06/2018
+
+Eat, drink, man, woman 1994 Review
+
+I am not really a big fan of pop singers. For writing’s purpose and to grab the end of my youth, I chose to claim I had been a fan of three silly girls. As age grows, I felt old and father like, esp. towards young women. And I might be the fan of the young girls, spoiling them and with no sensible thoughts just because they are the youngest.
+
+It’s about friendship and three layers of voices. Though woman always don’t have true female friends after marriage, women are always helping themselves in their own ways of socializing and empowering. I don’t think I could manage woman’s stories as these male Chinese directors did in the 90s. Why could they see the world through women’s eyes.
+
+But at least I could be a fan. Silly, shallow, simple, S.H.E., the Taiwanese pop band of three female singers, had one album after another. Quickly they had lots of fans and became as popular as other best selling Taiwanese singers in Chinese world.
+
+Ang Lee’s films had been uneasy to understand for me. This movie is esp. lovely by people as its topic is shallow, simple and silly. The widowed man was a Chinese cuisine master and had been thinking, oh, just have sex again until my girls have married themselves. He must have been very sick and unsatisfied with his sex life. This movie is all about his hunger. The same thing happened to the elder daughter who had been dreaming in a poor country through Taiwan’s economy was booming. The smartest one of the three was a business woman in sales, who finally got nothing actually. Seen as a Herr of her father’s tricky skills and whole Chinese classic culture, she was beautiful. The youngest married herself earliest, just as Jane Austen had written. Could we say the whole family were silly as none of them was in the right path regarding to marriage and sex life.
+
+Well, as a movie lover, I had the feeling that the director had been used to things needing lots of steps to make, which is advanced level or difficult in recipes. The band has faded out from our adult life and I have missed the years of being a crazy teenager fan. One night, I was in a KFC and a teenager girl was just sitting there after attending a concert. They, I mean the teenagers, were easy going and she had a little chat with me about her idol. Healthy, sunshine, harmless, these idols should be very careful with their public figures.
