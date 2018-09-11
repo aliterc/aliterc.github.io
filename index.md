@@ -92,12 +92,23 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- Commentary: Why Trump’s ‘Arab NATO’ plan won’t curb Iran
+- 0906 Commentary: Why Trump’s ‘Arab NATO’ plan won’t curb Iran
 
 The first round of what U.S. President Donald Trump called “the most biting sanctions ever imposed” against Tehran went into effect on August 7. “Anyone doing business with Iran will NOT be doing business with the United States,” Trump continued, in a tweet posted that morning. An even more damaging second round of U.S. sanctions against the Islamic Republic, reinstated after Washington pulled out of the 2015 nuclear deal between Iran and world powers, is expected to take effect in November.  
 
 Yet economic pressure is not the only tool the United States and its allies are using to counter Iran. In recent months, the Trump administration has been quietly working to forge a new security alliance, with the six members of the Gulf Cooperation Council (GCC) – Saudi Arabia, the United Arab Emirates, Bahrain, Kuwait, Qatar, and Oman – as well as Egypt and Jordan, to counter what it views as aggressive Iranian expansion in the region. Tentatively known as the Middle East Strategic Alliance (MESA) – but already nicknamed “Arab NATO” by the international press ­– U.S. and Arab officials say the coalition is being planned in an effort to expand cooperation on counterterrorism, missile defense and military training, partly to address the security challenges posed by Iran and its proxies.
 
+- 0911 Commentary: Covering the world, paralyzed from the shoulders down
+
+Twelve years ago this week, I woke up in a wrecked vehicle on a front line road in eastern Sri Lanka. My neck was broken, I was paralyzed from the shoulders down and it took a matter of seconds to conclude my life was probably over.
+
+- CST Chair: Labour antisemitism presents 'biggest political defence issue our community has faced for decades'
+
+The chairman of antisemitism watchdog the Community Security Trust has said “the leadership of the Labour Party and its most vocal followers" are “the biggest political defence issue that our community has faced for decades.”
+
+- Privileged people don’t need politics
+
+It’s a Friday night, the first one after Emmerson Dambudzo Mnangagwa is announced as Zimbabwe’s second democratically elected president. I am in the capital, Harare, where I have come to meet a friend for a late lunch and a strong drink after enduring one of the hardest weeks Zimbabwe has ever lived through.
 
 ### trades
 - be happy.
