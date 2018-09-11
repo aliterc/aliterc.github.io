@@ -114,6 +114,12 @@ The upset woman was a former member of the Sandinista rebel group, which success
 
 Now, four decades on from the overthrow of Somoza, she was taking to the streets against the government of Daniel Ortega, himself a former rebel and Sandinista leader.
 
+- Doug Ford hints at shrinking Ottawa city council
+
+As he digs in for a fight to slash the size of Toronto's city council, Ontario Premier Doug Ford is now hinting he's eyeing other councils in Ontario, including Ottawa's.
+
+In an interview with Global News Radio 640 Toronto, when asked whether he'd consider shrinking other city councils in Ontario, Ford said he's focusing on Toronto but hinted Ottawa could be on his radar.
+
 - 0911 Commentary: Covering the world, paralyzed from the shoulders down
 
 Twelve years ago this week, I woke up in a wrecked vehicle on a front line road in eastern Sri Lanka. My neck was broken, I was paralyzed from the shoulders down and it took a matter of seconds to conclude my life was probably over.
