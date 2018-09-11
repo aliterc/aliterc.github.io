@@ -92,11 +92,27 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 0906 Commentary: Why Trump’s ‘Arab NATO’ plan won’t curb Iran
+- 0912 U.S. southeast braces for 'days and days' of floods from hurricane
 
-The first round of what U.S. President Donald Trump called “the most biting sanctions ever imposed” against Tehran went into effect on August 7. “Anyone doing business with Iran will NOT be doing business with the United States,” Trump continued, in a tweet posted that morning. An even more damaging second round of U.S. sanctions against the Islamic Republic, reinstated after Washington pulled out of the 2015 nuclear deal between Iran and world powers, is expected to take effect in November.  
+HOLDEN BEACH, N.C. (Reuters) - The powerful Hurricane Florence threatened to bring “days and days” of rain and potentially deadly flooding to the U.S. southeast coast, North Carolina’s governor warned on Tuesday, as some 1 million people were ordered to evacuate their homes.
 
-Yet economic pressure is not the only tool the United States and its allies are using to counter Iran. In recent months, the Trump administration has been quietly working to forge a new security alliance, with the six members of the Gulf Cooperation Council (GCC) – Saudi Arabia, the United Arab Emirates, Bahrain, Kuwait, Qatar, and Oman – as well as Egypt and Jordan, to counter what it views as aggressive Iranian expansion in the region. Tentatively known as the Middle East Strategic Alliance (MESA) – but already nicknamed “Arab NATO” by the international press ­– U.S. and Arab officials say the coalition is being planned in an effort to expand cooperation on counterterrorism, missile defense and military training, partly to address the security challenges posed by Iran and its proxies.
+The storm threatened to hit coastal North and South Carolina with 130 mile-per-hour (215 kph) winds and massive waves when it makes landfall on Friday, and its rains will take a heavy toll for miles inland, the National Hurricane Center in Miami warned.
+
+- How much is China’s $60-billion really worth?
+
+Forty-eight African heads of state gathered in Beijing on September 3 and 4 for the seventh Forum for China-Africa Co-operation (Focac), a three-yearly display of China and Africa’s “friendship”, “win-win co-operation”and one-directional fund-funnelling.
+
+The last Focac in 2015, held in Johannesburg, saw China pledge $60-billion to Africa in the form of loans, export credits and grants.
+
+Focac is ostensibly about improving economic ties and helping Africa fulfil its development potential. This year, Chinese President Xi Jinping spared no sentimentality in his references to China’s “brother” —Africa.
+
+- Viewpoint: Ortega's Nicaragua crisis evokes memories of past
+
+"How did we not realise that they were becoming monsters? How did we let them get away with so much?" an old woman asked me, crying, at an anti-government demonstration in the Nicaraguan capital, Managua, at the end of April.
+
+The upset woman was a former member of the Sandinista rebel group, which successfully rose up against President Anastasio Somoza in 1979, thereby putting an end to more than 40 years of bloody rule by his family.
+
+Now, four decades on from the overthrow of Somoza, she was taking to the streets against the government of Daniel Ortega, himself a former rebel and Sandinista leader.
 
 - 0911 Commentary: Covering the world, paralyzed from the shoulders down
 
@@ -108,7 +124,17 @@ The chairman of antisemitism watchdog the Community Security Trust has said “t
 
 - Privileged people don’t need politics
 
-It’s a Friday night, the first one after Emmerson Dambudzo Mnangagwa is announced as Zimbabwe’s second democratically elected president. I am in the capital, Harare, where I have come to meet a friend for a late lunch and a strong drink after enduring one of the hardest weeks Zimbabwe has ever lived through.
+It’s a Friday night, the first one after Emmerson Dambudzo Mnangagwa is announced as Zimbabwe’s second democratically elected president. I am in the capital, Harare, where I have come to meet a friend for a late lunch and a strong drink after enduring one of the hardest weeks Zimbabwe has ever lived through.- 0906 Commentary: Why Trump’s ‘Arab NATO’ plan won’t curb Iran
+
+The first round of what U.S. President Donald Trump called “the most biting sanctions ever imposed” against Tehran went into effect on August 7. “Anyone doing business with Iran will NOT be doing business with the United States,” Trump continued, in a tweet posted that morning. An even more damaging second round of U.S. sanctions against the Islamic Republic, reinstated after Washington pulled out of the 2015 nuclear deal between Iran and world powers, is expected to take effect in November.  
+
+Yet economic pressure is not the only tool the United States and its allies are using to counter Iran. In recent months, the Trump administration has been quietly working to forge a new security alliance, with the six members of the Gulf Cooperation Council (GCC) – Saudi Arabia, the United Arab Emirates, Bahrain, Kuwait, Qatar, and Oman – as well as Egypt and Jordan, to counter what it views as aggressive Iranian expansion in the region. Tentatively known as the Middle East Strategic Alliance (MESA) – but already nicknamed “Arab NATO” by the international press ­– U.S. and Arab officials say the coalition is being planned in an effort to expand cooperation on counterterrorism, missile defense and military training, partly to address the security challenges posed by Iran and its proxies.
+
+- 0906 Commentary: Why Trump’s ‘Arab NATO’ plan won’t curb Iran
+
+The first round of what U.S. President Donald Trump called “the most biting sanctions ever imposed” against Tehran went into effect on August 7. “Anyone doing business with Iran will NOT be doing business with the United States,” Trump continued, in a tweet posted that morning. An even more damaging second round of U.S. sanctions against the Islamic Republic, reinstated after Washington pulled out of the 2015 nuclear deal between Iran and world powers, is expected to take effect in November.
+
+Yet economic pressure is not the only tool the United States and its allies are using to counter Iran. In recent months, the Trump administration has been quietly working to forge a new security alliance, with the six members of the Gulf Cooperation Council (GCC) – Saudi Arabia, the United Arab Emirates, Bahrain, Kuwait, Qatar, and Oman – as well as Egypt and Jordan, to counter what it views as aggressive Iranian expansion in the region. Tentatively known as the Middle East Strategic Alliance (MESA) – but already nicknamed “Arab NATO” by the international press – U.S. and Arab officials say the coalition is being planned in an effort to expand cooperation on counterterrorism, missile defense and military training, partly to address the security challenges posed by Iran and its proxies.
 
 ### trades
 - be happy.
