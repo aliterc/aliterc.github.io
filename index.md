@@ -126,6 +126,8 @@ The chairman of antisemitism watchdog the Community Security Trust has said “t
 
 It’s a Friday night, the first one after Emmerson Dambudzo Mnangagwa is announced as Zimbabwe’s second democratically elected president. I am in the capital, Harare, where I have come to meet a friend for a late lunch and a strong drink after enduring one of the hardest weeks Zimbabwe has ever lived through.
 
+[link](https://github.com/aliterc/aliterc.github.io/blob/master/0911.m4a)
+
 - 0906 Commentary: Why Trump’s ‘Arab NATO’ plan won’t curb Iran
 
 The first round of what U.S. President Donald Trump called “the most biting sanctions ever imposed” against Tehran went into effect on August 7. “Anyone doing business with Iran will NOT be doing business with the United States,” Trump continued, in a tweet posted that morning. An even more damaging second round of U.S. sanctions against the Islamic Republic, reinstated after Washington pulled out of the 2015 nuclear deal between Iran and world powers, is expected to take effect in November.  
