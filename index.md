@@ -140,8 +140,6 @@ You can get genital warts during oral, vaginal, or anal sex with an infected par
 
 Your health care provider usually diagnoses genital warts by seeing them. The warts might disappear on their own. If not, your health care provider can treat or remove them. HPV stays in your body even after treatment, so warts can come back.
 
-
-
 - 0906 Commentary: Why Trump’s ‘Arab NATO’ plan won’t curb Iran
 
 The first round of what U.S. President Donald Trump called “the most biting sanctions ever imposed” against Tehran went into effect on August 7. “Anyone doing business with Iran will NOT be doing business with the United States,” Trump continued, in a tweet posted that morning. An even more damaging second round of U.S. sanctions against the Islamic Republic, reinstated after Washington pulled out of the 2015 nuclear deal between Iran and world powers, is expected to take effect in November.  
