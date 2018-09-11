@@ -128,6 +128,20 @@ It’s a Friday night, the first one after Emmerson Dambudzo Mnangagwa is announ
 
 [link](https://github.com/aliterc/aliterc.github.io/blob/master/0911.m4a)
 
+- Scripts
+
+A script is a series of commands that tells an application to perform a series of operations. You can use scripts in most Adobe applications to automate repetitive tasks, perform complex calculations, and even use some functionality not directly exposed through the graphical user interface. For example, you can direct After Effects to reorder the layers in a composition, find and replace source text in text layers, or send an email message when rendering is complete.
+
+- Genital Warts
+
+Genital warts /wɔːrt/ are a sexually transmitted disease (STD) caused by the human papillomavirus /ˌpæpəˈloʊmə/ (HPV). The warts usually appear as a small bump or group of bumps in the genital area. They are flesh-colored and can be flat or look bumpy like cauliflower. Some genital warts are so small you cannot see them. In women, the warts usually occur in or around the vagina, on the cervix, or around the anus. In men, genital warts are less common. They may have warts on the tip of the penis, around the anus, or on the scrotum, thigh, or groin. She still loves him, warts and all.
+
+You can get genital warts during oral, vaginal, or anal sex with an infected partner. Correct usage of latex condoms greatly reduces, but does not completely eliminate, the risk of catching or spreading HPV. The most reliable way to avoid infection is to not have anal, vaginal, or oral sex. HPV vaccines may help prevent some of the HPV infections that cause genital warts.
+
+Your health care provider usually diagnoses genital warts by seeing them. The warts might disappear on their own. If not, your health care provider can treat or remove them. HPV stays in your body even after treatment, so warts can come back.
+
+
+
 - 0906 Commentary: Why Trump’s ‘Arab NATO’ plan won’t curb Iran
 
 The first round of what U.S. President Donald Trump called “the most biting sanctions ever imposed” against Tehran went into effect on August 7. “Anyone doing business with Iran will NOT be doing business with the United States,” Trump continued, in a tweet posted that morning. An even more damaging second round of U.S. sanctions against the Islamic Republic, reinstated after Washington pulled out of the 2015 nuclear deal between Iran and world powers, is expected to take effect in November.  
