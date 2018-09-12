@@ -120,6 +120,28 @@ As he digs in for a fight to slash the size of Toronto's city council, Ontario P
 
 In an interview with Global News Radio 640 Toronto, when asked whether he'd consider shrinking other city councils in Ontario, Ford said he's focusing on Toronto but hinted Ottawa could be on his radar.
 
+- COPD
+
+COPD (chronic obstructive pulmonary disease) makes it hard for you to breathe. The two main types are chronic bronchitis and emphysema. The main cause of COPD is long-term exposure to substances that irritate and damage the lungs. This is usually cigarette smoke. Air pollution, chemical fumes, or dust can also cause it.
+
+At first, COPD may cause no symptoms or only mild symptoms. As the disease gets worse, symptoms usually become more severe. They include
+
+A cough that produces a lot of mucus
+Shortness of breath, especially with physical activity
+Wheezing
+Chest tightness
+Doctors use lung function tests, imaging tests, and blood tests to diagnose COPD. There is no cure. Treatments may relieve symptoms. They include medicines, oxygen therapy, surgery, or a lung transplant. Quitting smoking is the most important step you can take to treat COPD.
+
+- Script
+2 Scripts included with After Effects
+
+After Effects provides several prewritten scripts to assist you in performing common tasks, and to provide a basis for you to modify and create your own scripts.
+
+Note: Run the sample script Demo Palette.jsx to get an idea of what sorts of things you can do with scripts.
+
+3 Write and modify scripts
+You can write your own scripts for use in After Effects by using the script editor, which is part of the ExtendScript Toolkit. The ExtendScript Toolkit provides a convenient interface for creating, debugging, and testing your own scripts. Sometimes, all that you need to do is make a slight modification to an existing script to make it do what you want; such slight modifications can often be performed with little knowledge of computer programming and scripting languages.
+
 - 0911 Commentary: Covering the world, paralyzed from the shoulders down
 
 Twelve years ago this week, I woke up in a wrecked vehicle on a front line road in eastern Sri Lanka. My neck was broken, I was paralyzed from the shoulders down and it took a matter of seconds to conclude my life was probably over.
