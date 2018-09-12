@@ -136,7 +136,7 @@ Chest tightness
 
 Doctors use lung function tests, imaging tests, and blood tests to diagnose COPD. There is no cure. Treatments may relieve symptoms. They include medicines, oxygen therapy, surgery, or a lung transplant. Quitting smoking is the most important step you can take to treat COPD.
 
-- Script
+- Scripts
 
 2 Scripts included with After Effects
 
