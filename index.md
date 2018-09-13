@@ -92,6 +92,50 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 0913 How Myanmar forces burned, looted and killed in a remote village
+
+On Sept. 2, Buddhist villagers and Myanmar troops killed 10 Rohingya men in Myanmar's restive Rakhine state. Reuters uncovered the massacre and has pieced together how it unfolded. During the reporting of this article, two Reuters journalists were arrested by Myanmar police.
+
+INN DIN, Myanmar – Bound together, the 10 Rohingya Muslim captives watched their Buddhist neighbors dig a shallow grave. Soon afterwards, on the morning of Sept. 2, all 10 lay dead. At least two were hacked to death by Buddhist villagers. The rest were shot by Myanmar troops, two of the gravediggers said.
+
+“One grave for 10 people,” said Soe Chay, 55, a retired soldier from Inn Din’s Rakhine Buddhist community who said he helped dig the pit and saw the killings. The soldiers shot each man two or three times, he said. “When they were being buried, some were still making noises. Others were already dead.”
+
+- Expression examples
+
+Many of the examples in this section are based on expressions provided by Dan Ebberts.
+
+Online resources for expression examples
+
+Dan Ebberts provides example expressions and tutorials for learning how to work with expressions on his MotionScript website. For example, Dan provides an excellent page about collision detection.
+
+Colin Braley provides a tutorial and example project on his website that show how to use expressions to make one layer repel others in a natural-seeming manner.
+
+The AE Enhancers forum provides many examples and much useful information about expressions, as well as scripts and animation presets. In this post on the AE Enhancers forum, Paul Tuersley provides a tutorial and example project that show how to use expressions to animate several layers in a swarm.
+
+Rick Gerard provides an example on his website that demonstrates rolling a square object along a floor so that the sides stay in contact with the floor plane.
+
+Carl Larsen provides a video tutorial on the Creative COW website that demonstrates how to use expressions and parenting to relate the rotation of a set of wheels to the horizontal movement of a vehicle.
+
+Chris Zwar provides an example project on his website for automatically arranging still images or videos into a grid (like a video wall). You can easily adjust position and spacing with sliders that are connected to a system of expressions. There are three compositions in the project—one for stills, one for videos, and one to create an auto-storyboard in which a video is sampled at user-defined intervals and aligned into a grid.
+
+JJ Gifford’s website provides several example projects that demonstrate how to use expressions.
+
+Maltaannon (Jerzy Drozda, Jr.) provides a video tutorial on his website that shows how to use expressions to create a volume meter using the results of the Convert Audio To Keyframes command.
+
+Harry Frank provides a tutorial on his graymachine website that shows how to use expressions to read data from an external text file.
+
+- Rashes
+
+Also called: Dermatitis, Skin rash
+
+A rash is an area of irritated or swollen skin. Many rashes are itchy, red, painful, and irritated. Some rashes can also lead to blisters or patches of raw skin. Rashes are a symptom of many different medical problems. Other causes include irritating substances and allergies. Certain genes can make people more likely to get rashes.
+
+Contact dermatitis is a common type of rash. It causes redness, itching, and sometimes small bumps. You get the rash where you have touched an irritant, such as a chemical, or something you are allergic to, like poison ivy.
+
+Some rashes develop right away. Others form over several days. Although most rashes clear up fairly quickly, others are long-lasting and need long-term treatment.
+
+Because rashes can be caused by many different things, it's important to figure out what kind you have before you treat it. If it is a bad rash, if it does not go away, or if you have other symptoms, you should see your health care provider. Treatments may include moisturizers, lotions, baths, cortisone creams that relieve swelling, and antihistamines, which relieve itching.
+
 - 0912 U.S. southeast braces for 'days and days' of floods from hurricane
 
 HOLDEN BEACH, N.C. (Reuters) - The powerful Hurricane Florence threatened to bring “days and days” of rain and potentially deadly flooding to the U.S. southeast coast, North Carolina’s governor warned on Tuesday, as some 1 million people were ordered to evacuate their homes.
