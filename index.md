@@ -92,6 +92,18 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- Nene promises financial prudence as all eyes turn to the MTBPS
+
+Finance Minister Nhlanhla Nene gave assurances on Thursday that government was committed to fiscal prudence, despite additional spending pressures on the budget and promises of a major stimulus package to boost the economy.
+
+Nene was addressing the Moody’s Sub-Saharan Africa Summit, but his comments hinted at what may lie in store in the upcoming medium-term budget policy statement (MTBPS), which will reveal adjustments to the national budget, in October.
+
+-0915 Cycling-Record world champion Vogel ready for new life after crash
+
+BERLIN, Sept 12 (Reuters) - World and Olympic champion Kristina Vogel, who was paralysed following a training crash in June, said on Wednesday she was ready to tackle her new life but has had no contact with the Dutch rider involved in the collision.
+
+In a news conference at the Berlin hospital where she has been treated, Vogel, a record 11-time world champion, said she had accepted the fact that she would not walk again moments after the accident at the Cottbus Sport Centre Velodrome.
+
 - 0913 How Myanmar forces burned, looted and killed in a remote village
 
 On Sept. 2, Buddhist villagers and Myanmar troops killed 10 Rohingya men in Myanmar's restive Rakhine state. Reuters uncovered the massacre and has pieced together how it unfolded. During the reporting of this article, two Reuters journalists were arrested by Myanmar police.
