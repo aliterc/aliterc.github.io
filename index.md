@@ -92,6 +92,12 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 0916 Tariffs threaten market-leading tech, consumer stocks
+
+NEW YORK (Reuters) - U.S. technology and consumer discretionary stocks have been insulated from global trade tensions, but if another round of U.S. tariffs on Chinese goods goes into effect, even those high-flying sectors could come down to earth.
+
+The United States and China have already imposed tariffs on $50 billion worth of each other’s goods. The White House has proposed tariffs on an additional $200 billion worth of Chinese imports, including furniture, handbags and some computer parts.
+
 - 0915 Nene promises financial prudence as all eyes turn to the MTBPS
 
 Finance Minister Nhlanhla Nene gave assurances on Thursday that government was committed to fiscal prudence, despite additional spending pressures on the budget and promises of a major stimulus package to boost the economy.
@@ -103,6 +109,10 @@ Nene was addressing the Moody’s Sub-Saharan Africa Summit, but his comments hi
 BERLIN, Sept 12 (Reuters) - World and Olympic champion Kristina Vogel, who was paralysed following a training crash in June, said on Wednesday she was ready to tackle her new life but has had no contact with the Dutch rider involved in the collision.
 
 In a news conference at the Berlin hospital where she has been treated, Vogel, a record 11-time world champion, said she had accepted the fact that she would not walk again moments after the accident at the Cottbus Sport Centre Velodrome.
+
+- SPH tips and tricks
+
+RealFlow's standard particle model is easy to use and gives great results, but beginners often struggle with the interaction between objects and SPH fluids. This leads to misunderstandings or problems. These issues are neither malfunctions, nor bugs, and therefore we want to clarify a few things here.
 
 - 0913 How Myanmar forces burned, looted and killed in a remote village
 
