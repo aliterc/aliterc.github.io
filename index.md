@@ -99,6 +99,7 @@ WASHINGTON/BEIJING (Reuters) - China and the United States plunged deeper into a
 The tit-for-tat measures are the latest escalation in an increasingly protracted trade dispute between the world’s two largest economies.
 
 - What is vaginitis?
+
 Vaginitis, also called vulvovaginitis, is an inflammation or infection of the vagina. It can also affect the vulva, which is the external part of a woman's genitals. Vaginitis can cause itching, pain, discharge, and odor.
 
 Vaginitis is common, especially in women in their reproductive years. It usually happens when there is a change in the balance of bacteria or yeast that are normally found in your vagina. There are different types of vaginitis, and they have different causes, symptoms, and treatments.
