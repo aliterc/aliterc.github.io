@@ -1013,3 +1013,573 @@ https://www.mrporter.com/journal/mr-porter-eats/nordic-cooking-in-the-wilderness
 过了三个月，博士给硕士送了手表，也把硕士送回国了。
 
 父亲心脏出了问题。博士要捐心脏。
+
+### 02 YOUNG CHINESE FINANCIER FINALLY MET HIS BRITISH LOVER IN AN ACCEPTABLE WAY.
+### DOCTOR IN CLASSIC DIED LEAVING HIS SON ADOPTED.
+### 03 A YOUNG WOMAN WHO HAD NO PERSONAL LIFE.
+### BANKRUPT MAN FOUND HIS FATHER A GAY.
+### A SCHOOL TEACHER LOOKED AFTER HIS SICK WIFE.
+### 05 YOUNG CHINESE FINANCIER’S REAL REASON OF DEATH REVEALED.
+### MIDDLE AGE BUSINESSMAN PUT IMPORTED IDOLECENT ON SITE.
+### OLD PROFESSOR MET HIS GRANDSON AND FRIENDS.
+### 06 YOUNG CHINESE FINANCIER’S SINCEREST WISH. 若い中国の投資家の悔やみの願い。
+### MIDDLE AGE BUSINESSMAN ON TIGHT SCHEDULE OF HIS PROJECT.
+### OLD PROFESSOR’S STABLE LAVISH LIFE IN CHINA AND AFTER THAT.
+### 07 MR COLLINS FOUND HIMSELF AS A RAT.
+### THE LONG LETTER FROM MR DARCY.
+### FORMER CHAMPION OF BR GAME.
+### 09 YOUNG CHINESE FINANCIER LOOKED FOR GOLD.
+### MIDDLE AGED BUSINESSMAN GAVE FEMALE STUDENTS MUFFINS.
+### OLD PROFESSOR SURVIVED.
+### 10 MR COLLINS BEGAN TO RUN.
+### DWARF.
+### ANG LEE: “NO ONE CAN SEE WHAT’S COMING.”
+### 11 Cover story: the long cold winter of unemployment
+### 13 https://www.theguardian.com/world/2015/dec/24/martin-scorcese-film-silence-martyrdom-japan-hidden-christians
+### https://itunes.apple.com/us/movie/macbeth/id1223153916
+### https://www.ucpress.edu/book/9780520207615/policing-shanghai-1927-1937
+### 14 HTTP://WWW.ISPRS.ORG/PROCEEDINGS/XXXV/CONGRESS/YF/PAPERS/941.PDF
+### 15 Young Chinese financier made a copy of himself.
+
+Night person, hate daylight, he is kind of out space person. In the future, the sun is dead. Earth has been polluted. Only moon light and stars. Nothing is growing.
+
+Looking for friends. 1. Talk. 2. Share rents. 3. Sick, drunk, in trouble, in grief… 4. Do sports. 5. Debts of 30000rmb and it mountains itself
+
+Things happened in the past has been dusts… They will never exist again. Regretting is like living in sorrows and memories. It is a good way to let your competitors stop.
+Billy Yin is a night person. He hates daylight. He is kind of out space person. In the future, the sun is dead. Earth has been polluted. Only moon light and stars. Nothing is growing.
+
+Billy Yin took a lunchbox to work. He got up early. It was still dark. His dad just called him to go back home to sell toilet. He could imagine that he sent name card to his friends: Billy Yin, sell manager in shower, toilet and basin solutions.
+
+Years after his struggle in Shanghai, he thought that his dad was right: a private toilet is everything to pass the cold winter in the city with no heating. He took two chicken filets from the old fashioned fridge, cut them into some chunks, quickly stir fried the Sichuan spicy chicken, put them into his lunchbox, hurried out with toothpaste still on his mouth. Billy Yin lived in Pudong, he had to be quick to catch the sunrise and first bus and then subway.
+
+His sister was on the morning bus’s small annoying screen. Sometimes he could see her reporting in a hurricane affected Pacific country. While her face was pushed by the wind, and sometimes hit by burgers: cheese, beef, tomato, bread, yes, hit, Billy Yin was nicely enjoying the joy of garlic from baozi in the morning bus. Bloody hell. He said. Could you stop eating spring onion, garlic and pork… His sister had a style of dressing: more and more like the BBC reporters: big piece of clothes cut in shapes and neatly seamed. Billy Yin was wearing suits: he had to, he got clients to meet.
+
+The bus began to stop and stop in jams. Once his sister said directing movies could have some privileges as every hit movie could let stupid assholes think years after years. Billy Yin didn’t watch movies. He was a theater goer. In movies actors sometimes did art, but in theaters actors are really making art. Thinking like that, he hit a button in his half robot body, time stopped. He wanted to fuck a girl with a flower like dress opened to him. It was morning, he somehow felt great need to fuck someone. He opened her dress, put his hand into her pant. He then finished his intend, left some liquid and seeds into another body.
+
+He fastened his belt, got back to where he was standing. He clicked the button again. The farmers from all other parts of China presumed to ask the Shanghainese in Shanghainese: what’s the next station? Then Billy Yin got off the bus, flushed himself into a carriage, stuck himself with his phone for another 15 minutes, then he found he left the lunchbox somewhere near the seat of the girl he had fucked.
+
+He remembered that her breasts were full and the nipples were not soft. She was on when the time stopped. The girl had the need to be fucked. Half robot Billy Yin could see through that. The girl’s licks were not sweet and her teeth were not white. Though small and thin, she was not the perfect egg for the seeds.
+
+A man needs to be settled into a woman’s body. It’s like the fucking building where Billy Yin was working in. Officialism, white shirt, finance, money, investment, business, consultancy, funds, suits, mugs, papers… fake or real businesses filled the city. While, not all of them could afford a nice office building. Some were in stock market, some were not in stock market, and Shanghai Security Newspaper was absolutely something Billy Yin used to sit on on dirty public seats. Billy Yin was working for a real financial company. The building was horribly unnoticed with no FamlilyMart around. It was a branch of British Business Review, whose building was also sitting in a corner of unnoticed London.
+
+While, after ten minutes in work, just waiting for Bloomberg Terminal opened, a notification disturbed the genius Billy Yin. His seeds got into the egg and another copy of the machine was planted into another human flesh. Billy Yin didn’t have a private toilet in his rented countryside house. He peed into the bottles from the drinks. He had no kettle. He had no tea sets. It was rainy and planes were passing by. A kind of sadness and lonely came and came again together with the cold autumn chill. He was not alone now. He had a copy.
+
+Cottons, vegs were planted near Shanghai. The girl got fucked felt hungry, ate the packed lunch she found on her right hand. Her blood became green. Her red meat exploded after the fast growing process of forming the machine organs. Half digested Sichuan chicken breast with rice were found by the police later.
+
+The sun had died. Dark clouds with heavy polluted mist covered the whole region. Though Shanghai was said to be the last port of light, it had fallen into the enemies’ control. Billy Yin’s company sighed a contract with the space ship institute. He had to prepared for a three months working in the dessert.
+
+The host of the news channel had a live broadcast and a big coverage on the triton exploration project. The host was naked, because the studio was too hot. He sat there, with a touch screen on the glass table in front of him and a box of three flavor ice cream with a plastic spoon. His watch was shinning, a piece of jewel was also shinning. People could afford air conditioner no longer if it cooled down by one degree, the outside’s temperature could be higher by two degree: no one wanted to put an ice box into a heated wok. The host was under a huge pressure as he was from another region, couldn’t pronounce the Shanghainese well. So when the camera switched to other videos and audios, he quickly asked his assistant about the right pronunciation. He didn’t wear any because the region was poor and no sponsor want to provide the clothes. His skin had been newly changed which also needs air and light. Everyone understand it: it is ok to be naked for any reason. Miles away, Billy Yin’s sister poped up into the camera frame. She was in a space suit. She looked not being able to control the gravity. When she wanted to walk, she was jumping. Oh, what a wonderful place for flying and sword fighting. She put a flag of China onto Triton’s land, but she was not the first one there, astronaut had been there long time before a journalist could travel there.
+
+Later when she became Swedish officially and the mysterious death of his brother happened, she finally stopped draining resources from the mother Neptune. Her long lemon yellow hair was yielding in the moon’s air. The host said one line which make all the audience laugh: Oh, please tell me you would like to have a nice drink, hot bath and stop using public money for expensive travelling for a second.
+
+That made Billy Yin laugh too. He owned no toilet of his own. He had to rest for an hour before cooking his dinner. Working on the space project could be better, at least it was state money and no crowded bus, no unrelated people, no fuck on a bus, no playing phone on subway: absolutely heaven’s job. Having made his last phone call which he deliberately prolonged, other colleagues had left. He called the girl he had fucked in the morning.
+
+Sorry, I left my lunchbox near you seat on the bus this morning. Could you kindly to give it back to me?
+
+Oh, who’s this? I did, ate the rice and chicken from an anonymous lunchbox. I threw it.
+
+Shit, oh I mean thank god, are they tasty? I have to buy the Family Mart sushi today.
+
+Then the girl exploded after screaming.
+
+Good evening, my copy.
+
+### Middle age businessman was a pervert.
+
+“duty first”. Mr Muffin is a “just” person. He is so morally right. When seasons change, he notices the sun is leaving the north. Though cold weather is good for health, a tiredness person like him would like to go to the Tibet to enjoy more sunshine. After meeting and mating the Welsh man, he has a strange smell of black feather, a smell of death. His flesh disappears during nights and regain its shape during the day. Being in a relationship is brutal, esp. for men with a fortune. He begins, restarts his habit of sleeping with strangers for body pleasure. Can’t resist it. Can’t ignore it. -Interview with Luke Evans.
+
+Man fucks man, this man is conquered. Man fucks woman, this woman is conquered. These is no woman alone that could survive. Men are born bigger and stronger. Women are born smaller and therefore in need for protection.
+When Mr muffin was rich, he lived in hotels like a joke, and threw money like shit into the deep hole.
+Men kill men and get their women…it’s normal.
+
+adWhen Mr Muffin knew that he could not die, he wanted to live, come back to life. Life needs water and sunshine. A dried flower could open again in hot water, and, if there are enough sunshine, it grows quickly. He struggled to find the ingredients, conditions to come back to life, but that was hard, he took years to find the right kind of pineapple. Then he gave up, knowing that it is a one way ticket only through the life and death door. He had something unfinished, so he could not two feet in death to another world to meet his long lost lover.
+
+He had to finish the things, so he could die in peace and disappear. There was no home, just the end. His options were pageup and pagedown the hundreds of long years of living as a shadow. He had been an excellent cook, as he knew the things growing on earth quiet well, and had seen many of them becoming protected animals. He was also an excellent builder. Men verse nature, he had seen so much, and had learned so much. With the devil’s strength, he could force rocks and woods and cut them, freeze them, heat them to form anything he wanted. He knew well about how gravity works and how things get along with each other. He could summon storms and mist.
+
+He was the kind of “duty first” guy. Once programmed with missions, though the owner had died, the robot would still continue working on the missions. As a businessman from cloth to construction materials, he was not a money oriented person. He immigrated to Ireland in 1997, and had worked in software companies for years. He held a jewel design master degree so due to his natural interest, he needed gold, silver and other metals to put diamonds in. He found China had made itself the largest exporter of gold. He would like to get a deal with the gold mines to maintain a cheaper supply of gold. The only thing he was expected to exchange for the deal was a praise, like the one a teacher gives to a small child.
+
+Mr Muffin secretly hid his immigration from his dad who was Swedish. His dad was very well educated and had always been in academic. His dad described research like fishing in the pacific. If the fisherman wanted tuna cans to export to China, they had to face the waves and sharks. Mr Muffin thought his dad was good looking with beard all over and captain like. The navigator, his father held the wheel in the sea of waves. Layers of dark clouds covered the blue sky and sharks were all around. They had to kill one shark to pay for an IMac, or they needed to catch lots of other fishes. The boat had been turned upside down. Mr Muffin and other strongmen managed to turn the boat back. Then they were took by a helicopter to a larger steel ship, where they caught a shark successfully, that was the only warmth and light they get in the cold Pacific: efforts got paid. Back to the fish market, the old Muffin Tin was relaxed and happy.
+
+Mr Muffin Tin’s long lost lover was photographed naked with detailed private place exposed by a Welsh photographer. The girl was raped and murdered. It was snowing. The murderers were cornered by him on a beach. Foams, waves seagulls. They fought. Then during the ages of getting old, the lonely man kept sculpting the young lady, which made his wife very angry. They were married and he promised to build a governor’s mission, park, big house with lots of rooms, and for her. While, what he got was another woman.
+
+The Welsh man with Mr Muffin didn’t know that this lovely short Chinese middle aged, was not only a dick sucker, a sodomy lover, but a blood drinker. During their gay sex in thousands of ways, legal or illegal, group or not you could imagine, Mr Muffin had been capable to avoid any sex transmitted disease which, even for the British with free medical care is a hard job. Literally, losing a hand or a half a head, they would grow out again for Mr Muffin. His only problem was the sunlight. He knew the weather very well and felt it proper to follow the sun to Tibet during winters, his responsibility of protecting the good, the harmony, sometimes led him to get burnt. As a lawyer, you could not get burnt. He ate human food, shit, and kept a large supply of wine with O, B, A, AB, goat, lion…labeled.
+
+Mr Muffin knew he was only a shadow. Long time ago, he was a king with his servants and armies. He had been a cunning communicator. He once was a journalist, spreading fake news, lots of his news were exaggerated and false. He then became a consultant for politicians. He trusted no one. He did lots of research.
+
+Looking at the reflection of the sky in a pond where golden and red fishes were kept, he remembered all the people died in politics. He liked the Himalayas where one continent hit another. It’s green. Waterfalls. A feast of plants he liked. He knew the harshness of the nature itself and the wrath of god. The earth was young, then prehistory activity of humans, then the classic time of his. He stood on the side of humans. He knew humans love nature as long as they are in an all glass ball: not getting wet, not getting harmed. He also felt he is not one of them.
+
+Life forms on the earth are one way only. Lots of people come and go in Mr Muffin’s long life.
+
+### Old professor told about his war experience.
+
+HONG KONG (Google)
+Monica Lin was studying French. After years of teaching in China, she got a job in Canada and met the first French. Shen then opened a restaurant in Vancouver. 
+Her young husband, 21, has been a head in McDonald’s in Spain, gay though. Professor Muffin Tin, 74, is an airplane expert. He helped the young man with a degree in engineering.
+
+HONG KONG (Google) Monica was studying in French. After years of teaching in China, she got a job in Canada and met the first French. She then opened a restaurant in Vancouver.
+
+Her young husband has been a head in a McDonald’s, gay though. Professor Muffin Tin is an airplane expert. He helped the young man with a degree in engineering.
+
+Covel Greenwood was based on my previous landlord in Fuzhou in Fujian province in China. He fell for his second son, Dawei, who has the most beautiful face the dad has ever met. Does he want to sleep with his second son? He always doubted. He designed a way for him as a combination of a baker and fisherman. He wanted his second son tender hearted, sweet and of lots of courage. On the contrary, the boy turned out to be too plain with no gift. While the first son was making a good life with his tongue, the second could hardly finish any adventures. He has to stay at hometown where wages are lower.
+
+After years of separation, he finally arranged a meeting with the boy, a subway engineer in Shanghai. It was after midnight. In a VIP area, two young sleepy boys were serving the food. Mr Dawei was pretty old then. He didn’t wash his hand, bought a swiss roll and instant noodle. He was working on a new branch of subway in the netting process of Shanghai. Mr Covel was on his way to Russia and the other four countries in north Europe. He was in transit with a 72 hour pass visa. His son was still catching him. Mr Dawei looked like a deer in the night’s perfect light. His skin was white. His face was clearly created and positioned with thin a thin brush. He took the cake out of the package. He didn’t mind that the dustbin’s lid was dirty. He opened it then threw the package. Mr Covel wanted to hold his son’s hands. He knew that he must have suffered a lot. He could imagine that working on a subway’s construction, his son sometimes didn’t shave, with a bar of smoke on his hand, under a tight schedule, looked terrible. Mr Dawei was sleepless during nights. He didn’t order anything special for his meeting with his dad. He didn’t treat him as his dad. It was his normal every night meal. His smell of body, his shyness during teenager years, his well grown breasts, his easiness, had become framed pictures which Mr Covel finally got lost in the sea of people.
+
+Professor Muffin Tin watched his wife’s corpse being burnt with the rest of his railway neighbors in the McDonald’s. He then remembered that during all these years of being abroad, he had never bought a Gucci scarf for his wife. He then went to a Gucci shop, asking for a silk scarf under 10000 renminbi. The patterns were flowers and birds. They are one piece of drawing and didn’t repeat. He then boarded a plane with the scarf for his dead wife. It was cold on the plane. He wrapped himself in the scarf like a wallpaper. My wife is a pig, a hog, a swine. Yes, she was the most disgusting creature. Every day the former chef went to shopping, he stared at the pork, asking for lamb. Pigs eat their own shits. He and his wife slept in separated rooms. When they had sex, he punished her to make her cry. The day he wanted finally to kill his wife, he did some research on how to kill a pig. Bloody hell, he stared at the smelly, laughing, shouting, nightmare like people shopping, quarrelling, bargaining in the grocery area; and suddenly a very fat girl under ten just ate a very thin middle age struggling man.
+
+The battle of Westfall happened when Professor Muffin Tin was very young. The then cornbelt of China was the old royal lands. The place was not very successfully looked after and threats turned the once rich farm land into an environmentally fragile place. After the Taiping occupation of eastern Jiangsu, old Shanghai was swelled with refugees. Foreign banks and companies got into China during 1912 to 1935, when the country was trying to build itself. Professor Muffin Tin was following the government’s post to protect northeast China.
+
+It was a bloody battle. Godsent. Godsent. They could find spring onion, ginger root, garlic and red chilies. Ginger roots were not peeled and had been washed. Garlics were pink and white. Potatoes, mangos, fish, chickens, sesame, vinegar, soybeans were also growing. They wanted to make it slow so people would have time to think if they were being followed. There was little possibility of a win, like a girl who loves football and has devoted herself into the sport but with little possibility to get funded and win a medal. His skin was white, then turned black after a summer. He absolutely loved the country. Waves after waves of enemies were pouring in. He was swift, wearing a pair of light, knee height leather shoes. He was underage for a war like that. He used fire well. He was good at traps. He took an afternoon’s time, none stop, waiting for the enemies to be poisoned. He added things little by little. He killed 40 per night. Blood was everywhere so they had to clean it every hour.
+
+892bca48684509.589ea077855b8There was a plane coming to pick people to leave. Professor Muffin Tin never think of leaving. Once captured, it could be slavery. After the war, Paris was spared physical destruction, while Shanghai was in Diminish, professor Muffin Tin had to go to China Town to cook. He went to Sichuan and cooked a very good Sichuan spicy chicken. I have always thought that myself has been the drought boy waiting for a fire ring, while, I am not. I was born as a monster and would be a monster to seduce and kill for a living. I grab the unfortunate boys into the bottom of the pond for some changes to have food. Once noticed that I am the bread scrub, I made myself into a meatball and when I was juicy in others’ month, I was crying. Time, time, catch every deadline but can’t avoid a careless slip. The clock in my hand dropped onto the ground, like a 5D Mark 3 dropped onto a concrete ground, into pieces. The liquid of time is gone. Mark is always absent on a voyage. Monica is like deaf in the French restaurant. Kill everyone in your way, then you could see the bloody way out. There is no fire ring. It’s your own bare hand with a knife robbing everyone.
+
+### 16
+
+https://www.irishtimes.com/culture/books/because-we-are-mortal-we-live-a-precarious-life-on-the-edge-of-a-volcano-1.3611532
+
+Mr Muffin was so mean that he didn’t want to share anything with anyone. He just wished that his forever glass car would run forever, no matter how the earth and humans change. He behaved like a man driving a car with the windows shut. Even when he could actually see that he had hit a man, he pretended that he was hearing and feeling nothing and there was nothing under the car. He just ran away.
+
+He was half dead. Living men are like a plus. Dead men are like a minus. He was zero. Autumn leaves began to fall. Rain one after another. Boys wore shirts outside their t shirts. He lived in the Himalayas’ most luxury building’s highest floor. His only friend was living in another hotel 200 meters away. His building was four seasons estate’ product. He just landed his paper box onto the roof. His only friend was an actor, living in the five floor hotel’s 5th floor. His friend looked at Mr Muffin’s paper box in the cloud with the shinning logo of the estate company in early morning. His friend was not lucky. He was poor. So he wrote a letter to Mr Muffin, a house owner. Mr Muffin didn’t reply. It was eight years after they graduated from a wizard school. Mr Muffin had years and years of fortune. His friend looked at another not so fancy a department between the two buildings, thinking that it was not right to stare at the shinning things in the city center.
+
+After twenty years, his friend became a successful actor. He moved out of the Himalaya’s where there was no electricity, no water and no gas. He did remember sometimes there was no paper box on that highest building. He thought it was the clouds. He now lived no longer in crowded, 3*5 no window, noisy hotel rooms. He lived in private land with a singer house in Beijing. No one could disturb him. He had been in roles in many films. Mr Muffin somehow became a poor guy. He sold the paper box, had to do hard shipping jobs for a living. He contacted his only friend he had lost in the sea of people. The actor said, you were cheating me twenty years ago. You didn’t have the house in the most luxury building. They told me the highest floors were always only affordable for foreigners.
+
+They knew each other. They were the only two of the kind that could not die. Mr Muffin had a team of five and he had to record what was happening on this planet. He switched from the mountains to the sea after three episodes. There was still only a 0.5*3 meters window in his box where he kept his coffin, soil, plants, clothes, films and bath. When he chose shield on, the box would be invisible and free from any harms, like a gay in closet.
+
+Mr Muffin was a king. Not like Professor Muffin Tin who had limited time left and had been slow needing young lovers to take him to parties, Mr Muffin did not like the noisy night clubs in Bristol. He had several properties in the England. He was excellent in cooking, excellent in building. He was a master and could master anything men had invented in the war with nature. When he talked with men, he must have had an intention: blood, or money.
+
+Flying in times is like a shadow into anyone’s life. Today he is a normal guy on a bus, tomorrow he must be witnessing volcanos and waves. Eight years, Billy Yin had earned 400000. His only friend killed himself many times while wondering in the woods of mushrooms that could not be eaten, hungry in the dark, wet, narrow forest of art which a poor country could not afford. Mr Muffin was cunning. He knew that art needs money. He did trading rather than art. Once, he was in his car, noticing the actor, his only friend in the world, was walking on the walkway, with breakfast of a bun and soybean milk, hurried into a theater for small roles. It was raining, raindrops were on his window. His friend just disappeared into the dreaming world. He understood fully why his friend was suffering. Eight years ago, his friend chose to do art and art needs money. Then his friend only dreamed to be rich but never had a well paid job. Mr Muffin thought like this while his plane landed in Ireland. Same kind of rain and plants, but full of seagulls and sausages.
+
+He just couldn’t open his car to tell his only friend that being immortal is a curse and in order to live against life and death, one had to be real. One had to know how much a nail cut is and how much a cabbage is. Cooking itself defined civilization. When his friend ate in cheap restaurants and stalls, poor guys around were like worms and snakes feeding themselves. When later he tried cooking, he didn’t feel that he was a monster with no intelligence. While when he was lost in stories, costumes and scenes, he could even not read the instruction before using his phone.
+
+Mr Muffin had a doctor, his father who was an environment expert. Mr Muffin had a designer who was a specialist in weapons and tools. Mr Muffin also had an engineer who made robots and dolls: humans are Mr Muffin’s pets and research objects. When humans wanted to study from birds to make planes, they were actually like the birds: they had to move their wings very quickly to fly over the mountains with the flocks; they look funny and not smart. Mr Muffin knew that humans could understand and learn from the past and could measure. He controlled them to collect information.
+
+A deer, humans is only a deer in Mr Muffin’s planet earth. His actor friend once was in Mr Muffin’s business. He was given a job. But when movies were on, he was told to chase his dreams on a phone screen or translated cinemas. Then he couldn’t get up at six in the morning to catch the morning bus and he thought it was not his right job. Mr Muffin just wished his best friend best luck in this old world where there is no light but only sandstorm.
+
+He sipped tea and it was raining or heatwaves outside the paper box. He could see that through the long narrow window. His friend finally got famous and rich as an actor. His best friend’s rehearsal room was just under his paper box. It took time. If we don’t want to compromise on the look and the quality of the life we build for ourselves, we have to wait. Even these guys who could not die need to wait.
+
+### s
+
+Monica Lin, who has a whole English world of her own, was sexy, beautiful. The French young boy, could never bear seeing people starving, was happy with a free internet. When Monica Lin was in Spain for her Spanish course, the young boy was a teacher in a museum for children group visits. Monica Lin knew that she might disappear as a tiny particle of sugar into hot water in the new world. She took one thing from China: a chef certificate. Professor Muffin Tin had taught students for a long time as his career. The old man was a crazy fan of a Taiwanese band. Monica Lin finally had an office job. The young boy had an engineer degree. A cake, card, flower shop was opened.
+
+The eldest daughter of the newspaper editor was working as the father’s assistant. The restaurateur was strong and fit. He is rich like Carrefour’s boss. When people are poor, they must keep themselves happy, or they could do nothing with a bad mode. The restaurateur became poor in a night’s time, as poor as the French boy who was picked up by Professor Muffin Tin from Paris’ street. He had enemies in politics. In the country he came from, there was no free internet.
+
+The eldest daughter of the editor one day lost her golden ball into a well. She asked a frog to pick it up for her in exchange to kiss the frog. The restaurateur had nothing under his name and ugly indeed. All he could manage to get is to play with rich people’s kids to keep an income. Monica Lin took away fried noodles from the Chinese buffet on the other side of the bank. Then hung up the phone call from Mr frog. She was from to school in Canada and had worked for top companies. She could teach doctor students. The old king was a great fan of the famous restaurateur who was once rich and now poor. He wanted her daughter to have an interview, and take photos of the frog for the supplement. He forced his daughter to keep the promise as the frog had found the golden ball.
+
+The eldest daughter refused the proposal from the restaurateur. The restaurateur said, I am a sailor, I fight with the sea and weather to get my money and fame. I won’t be around all the time. I promise you that every time I hear your call from wherever on this planet, I would be present with the speed of light. The daughter said, you are not good enough for me. You can’t even speak French. Kill yourself. Then she threw the frog onto the wall. Small business owners in the country where the cursed prince was from were heavily taxed that year. Nothing from cakes to flowers to cards were profiting. They threw the government down that night.
+
+Mr King got his interview and news. The daughter found herself mean. She was presented a heart of gold. Never judge a man by his possession.
+
+Chinese food means a lot. Rainy, sell myself in the age women were not independent and travel was difficult. Study English, end up in receptionist. Wait for an old man’s help. There is nothing in this world that money could not buy, not to say a citizenship.
+
+Marrying to a foreign person is like “voyaging the pacific alone” and, to say goodbye to childhood. It often ends up in disaster in reality. When the old man is dead, the only warmth is from a fucking husband. Oh, fuck oneself.
+
+Mooncake festival was coming. It was raining and there was no moon. Monica Lin had been sick for a long time. She asked the servant to open the window for her. She had a feeling that she could not live till the end of the year. The French boy was still in university for the degree. Study was hard. He was full time study. His financial status was like a paper made umbrella caught in heavy wind and rain. He could not afford to pay before eating a bowl of rice. He took shelter in small temples and helped by his teachers. He always said: oh, good sister Monica, you are the goddess. Monica Lin died. She asked the servant to put her carefully framed self portrait near the rock in her garden. The family moved, left the garden. When the French boy visited the garden, he found the painting. The dead Monica had a reunion with the French boy in capital city. They rented a house. The boy became rich and powerful of high social rank en la fin. The illustrations of this story were painted by French brand pencils and water color, made in Kunshan, a small city on the skirt of Shanghai.
+
+### 17 MR MUFFIN SHOT VIDEOS IN POTAGONIA FOR BILLY YIN. – INTERVIEW WITH HUGH, MICHAEL AND JAMES
+
+Mr Muffin was driving a Ford. He heard that people were calling John the baptizer the angle for the hungry and poor, then he heard that people were calling him the lord for the sick. In his mind, from his classic time, he had betrayed too many people. He could hear them cursing him.
+
+Winds, pine trees, he could hear them in his four season hotel’s highest floor bedroom. He didn’t like sunlight at all. Wherever he went, he brought a cloud of mist with him. People say he is dark, truly because there had been too much darkness in his memory.
+
+Mr Muffin was born and raised in great Turkey land, where the sea and mountains are both not far. So when people want protection, they hide in father mountain. When they want to risk there life for flowers of the sea on the seabed, they dance with sharks and dive into the water that covers 71% of the earth: they go back to mum’s body.
+
+He remembered that the first car was invented by Mr Ford and the first lamp was invented by Mr Edison. He could not drive as he was too used to horse carriages. He could command horses. He could not control machines. So, he gave up and hired drivers since he bought the first car. Mr Muffin was in a fraudulent community of Christians. He wanted to eat human, esp the strong and well muscled. He could not do that by himself. There were thousands of unarmed low price workers as refugees in lots of countries who are lonely, discriminated. They went to the community of Christians every Sunday to sing their little hope and their little gods. After that, men felt purified like Céstbon water and that’s the time they appeared most lovely and naïve and unarmed. They cooked the human in McDonald’s. Sometimes cooked with baby potatoes, baby chickens and lamb.
+
+17-19
+
+https://www.behance.net/gallery/68687079/Watch-testing
+
+Mr Muffin just want the Welshman’s body. He only wanted him. In the past, he used to wake up on different beds with strangers or not whom he had had communicated fleshly. He ran a full body health check of the human he had sexual intercourse with. He sucked dicks of taxi drivers right in the cars. He slept with athletes and sport school male students. He even had sex with them in public toilets which are filthy, unresisted unhealthy and smelly, therefore unique and unforgettable. They liked him as he appeared to be foreign, pale, old and rich.
+
+When spiders spin the cross on his wall upside down, he stopped sleeping with unrelated people and making connections physically. He was the old time good and faithful Christian. He hated gays. He stopped for years until the Welsh driver came into his life. Mr Muffin was from a well educated family. He was short, like to eat in Kungfu steamed food. He was lovely.
+
+Being both gifted and cursed, he didn’t miss a second of bodily pleasure, never give up to volatilities and stupid governments, but, mais, he obeyed the rules of nature. He obeyed all the rules. He was a wizard traversing the tranquil crowds to fight ghosts that hurt humans. He was so strong and powerful that he must protect the human world from harms. He had an army of snakes, spiders, mice, wolves, man made humans.
+
+While, at this moment, Mr Muffin was in the school, with a group of gay priests, thinking of the Welsh driver’s soft body all the time. Study was hard. Professor Muffin Tin was teaching in Kent and dating the French man. Mr Muffin was in debts from his last failed project of an underground city. Billy Yin was kind of enjoying failed projects in cities: it reminded him that he was living in the future. He saw the communist’s annual meeting room was in abundance in east Europe and he felt a sense of faded glory in the empty buildings once filled with smiling consumers and shops. As a spaceship falling from the sky and ran out of fuel forever, it reminded him of one thing lord Voldemort had said: only love lives forever.
+
+Billy Yin was recently working in a space tourism site as a tech support assistant. Nothing was growing and they only had instant noodles, frozen food, packed reheated plane food, and bottled waters. He felt more tears in the waterless and soundless moon like dessert. His eyes damp itself. Sadness. He felt that most life forms came to the end.
+
+He fell and had been sent to military hospitals. He thought about Tibet. Though he had been born as a Canadian, he had never experienced high altitudes, sunshine and timeless way of living. Tibet was not very far. If by car, he could arrive at Lesha in two days’ drive. He hadn’t had a car. His dad was a steady income government officer regulating local food safety. He never wanted a car as he had been in Shanghai relying on public transport for so long.
+
+The team manager was an interesting 40 year old senior. He thought that Billy Yin had been so sick after his visit to South Africa and Chile. He noticed that. So when Billy Yin had both time and free medical care, he took him out by a Jeep, showed him the points of owing a car and a camera. I want to fly so I bought a car. He told Billy Yin. When Billy Yin joined the company he was thinking of buying a Ford. Now he rented a car anywhere he went by Henz.
+Billy Yin was a lab test result and beta of Siemens and Chinese army’s special joint national security level project, he woke up in an all clean, cold and white lab with no sunlight. He could remember nothing. Until one day he found that he was not a creation of the nature. He thanked god deeply in his heart, if he still had one, that his mother gave birth to him.
+
+Mother earth, though some human tried to be the mom. Billy Yin was so sick that he had been relying on breathing machine. His heart failed. The Chinese doctors couldn’t stop his internal bleeding in his stomach. He had blue blood, which he joked with his sister was because of drinking Pepsi too much. He would like to see birds, wild animals and all the other creatures. It made him feel the good of being alive.
+
+He had no hope. He knew that he could never afford a private toilet in any part of the world. He always stayed in motels for business travelling. He got his small corner in Shanghai but he knew that big money won’t came to his riverside as there is no trading ships stopping in a place with no harbor. He paid his rents every first day of the month, and ate crisps of Layers and a box of apples his classmate sent to him from her lab. For one whole month, his machine part functioned badly. He could not eat anything.
+
+He had no hope. Her sister was lying and lying on TV for the incompetence of local industries. His sister, logically in his brain. His sister, so why do I have no memory of my childhood wit such a female? His sister once said, men here are stupid and deaf, I have to cover for them like a hen for its baby chickens. After her marriage with the Swedish white man, Billy Yin understood perfectly some people don’t do as what they say.
+
+Mr Muffin was invited by the military to treat Billy Yin who kept a high fever and flakey skin. His joints were all bruised, swelled with internal bleeding. His eyes were red. Mr Muffin was one of the secret doctors in several countries’ military, specializing in strange diseases and aliens. He had adopted by Ireland for 20 years and he had been a very double agent.
+
+He sucked all of Billy Yin’s blood every night so every morning Billy Yin’s machine part had to run by itself rather that exploiting Billy Yin’s flesh. But only for a while, the doctor had to give the blood back. He remembered that it was not the first human who had been turned into a robot.
+
+Mr Muffin took Billy Yin into his paper box. They landed in Chile where Billy Yin had been damaged. Billy Yin had not recovered. He found Mr Muffin good looking, charming and tender. He asked if he could have sex with him. Mr Muffin said I am too old for you. Billy Yin then got off the paper box, stepped into the nature with a windspeed that no camera could stand. Mr Muffin said: I am a rich tv guy. I had been making documentaries around the world and broadcasting them as a life long career. If you want to get rid of Siemens and the crazy Chinese role, to go back to you clergyman role, I could help.
+
+Billy Yin said: is it real?
+
+Mr Muffin picked up a stone, grained it in his palm. He then found a bird’s egg, cooked it in his palm. He caught a fish, transformed it into a flower. He said, no, it’s not real. He then hold the driver’s hand, telling Billy Yin that only the flesh you are holding is worth dying for. The Welshman’s hands were like a piece of silk flowing around Mr Muffin’s immortal cold. He could feel that Mr Muffin had wounds: long lost lover, mission impossible, stuck in the door of this world and the after life, and above all, the inability of smiling. It is not warm enough, so he became his driver.
+
+It turned dark, everyone needs a home. They decided to go to a local police’s home where his wife and daughter had been preparing dinner for these cold miserable men working in the winds and sunshine all day. The soils were too dry for any plants to grow. Mr Muffin’s devil’s eyes were not like Billy Yin’s which were full of water and innocent. Billy Yin soon felt that two devils were around him and he was again a prisoner. Night had come and you could hear wolves in the wind. He wanted to escape. Mr Muffin said: one step outside the door and you will be eaten. Billy Yin suddenly missed his manager’s warm, relaxed Chinese jokes and his dream of buying a Ford instead of renting expensively around.
+
+He felt wind, snow, rain and a time lapse of every growing things in Patagonia. He heard waves, seagull and breaking of eggs. Though his eyes had been plugged out as he could not control his lust for men any more, he did evil, thought evil. His eyes were in a glass of hot water, for purifying reasons. He smelt mint, toothpaste, double swords chewing gum, and trees. He took a sweet made of ginger containing a pine nut. It was from the wonderful cook Mr Muffin according to a very old recipe. Mr Muffin said, do you want a hot bath in my paper box? I could place it amidst the penguins. Billy Yin felt that he had been cured when he washed his skin: the machines were so steadily, silently, smoothly running.
+
+### COVEL GREENWOOD – THE WHOLE STORY.
+
+Money is not a problem.
+
+Covel Greenwood was born in Xi’an. When he came back from Europe, his mother was killed. His father married a new wife. His father tried to kill him. He could not do it by himself. He sent Covel to his uncle, who was in the local army. The uncle didn’t kill Covel. He sent him to a remote region, heart of Chinese Communists’ struggle in 1940s.
+
+A priest told Covel not to fight with the Japanese invaders, but to learn from them. Covel was young and inexperienced. He was with another soldier on a secret resistance stop near a mountain road. In the valley, it was green and even a river was running. They were not covered by any trees up on top of the mountain where were only sunshine and bushes.
+
+It was hard. They had to carry water up onto the hill. It was silent. It was hot. Japanese cars came to check who was living in the small house. Covel said they two were gay men who had to escape to this wildness to survive. Covel could only sleep if he heard the other soldier’s breath. The Japanese were behaving badly. The other solder thought that they still might be killed just as a joke as gay men were a public joke even in Japanese’s eyes. He chose to sacrifice himself to spoil the Japanese’s joy of killing. He somehow made the officer angry and got himself killed. Facing weak Chinese is like a grade 4 harry potter watching freshmen passing. Why not to do some bullying? Killing for fun could only be stopped when there is no fun.
+
+After that, Covel began to challenge Japanese in private occasions. On the second floor of a restaurant near the Goose pagoda, he thought about all the lost things once existed in this city, his hometown, then left to the Yellow river bank to fight with a Japanese one to one.
+
+The fight ended with Americans’ intervention. Covel’s best friend who was sick in a Shanghai hospital asked the American rangers to help. Covel then had a chance to study in the US to be a doctor. His friend died sadly. He returned to Shanghai, had a nice hospital job. His father was affected by the war ongoing, hearing that his son had had a modern life, sent him a letter.
+
+Covel ignored the letter. He then followed his teacher’s advice to leave China. He was in debts to a company who supported his study. He moved to Singapore and still worked for the company. He married to a movie director’s daughter there.
+
+It is said that Covel was peacefully moving to Singapore. But, every story had another version. Covel was possibly travelling with a professional traveler and then arrived Malaysia. He became a craftsman making wooden things.
+
+Seeing Billy Yin struggling with money, Professor Muffin Tin had to tell this war time story to him. Billy Yin was a Christian, which means he had to hide every time the government came to search local churches. BBC reported a government officer in Beijing invited the journalist to his home to see the alter. Billy Yin just wanted to hang a cross in the room and sing southern cross freely, not looking like an alien. While, when he found Chinese put a big slogan “this is a Christian family”, he found it fraudulent as it is too foreign and too frank for a Chinese under Communist education and rule for years.
+
+Professor Muffin Tin never questioned himself with serious questions. God creates men and makes women give birth. Professor Muffin Tin also knew that women made men labor and bring back home money and good clothes. He had been a cook. He understood that thinking differently and behaving differently could be shouted and fired. He then never left school to keep himself in the front of techs and ideas as he felt that he was too old and he had been in a very disadvantaged, margined position.
+
+“ok, ” he said in the telephone to Billy Yin, from Kent University to Shanghai, “you know it’s a communist country and there should be no money. So never worry about it as long as it is still a communist country.”
+
+“What? But everything is charged and you just can’t say it’s people’s restaurant and I am one of the people and it should be free,” Billy Yin was counting the time as his phone would be charged when picking up international calls.
+
+“I said, when you found that there had been no money pouring into your bank account for months, years, think like this: on the foundation of this country there should not be even a bank.”
+
+“that’s rubbish.”
+
+“Has Trump told you in his book that you should make use of money rather than checking pay cheque?”
+
+“yes, a little, like Danish rolls and classic music: pay cheque is a fraud but writing stories is assets of one’s own. Good things never fade.”
+
+“Has the government told you that the banks were once in big debts and had had lots of problems in China? Why are you using them still? ”
+
+“I have a pay cheque and have to pay the rents and utilities.”
+
+“How much money do you think is secure?”
+
+“secure for what? ”
+
+“to be a Christian and live as one.”
+
+“I could only live once and I have to choose if there is no other option. If I were a Taiwanese and I were overaged I had to marry to any available option even it is from mainland.”
+
+“that means you have no time left.”
+
+“I think I need a business to make money rather than having the money. 1,000,000 rmb. Yes.”
+
+“that’s just a car’s price.”
+
+“just give me the money.”
+
+### 18 SINGLE MUM WITH THREE JOBS.
+
+The battle between the countries raged around Billy Yin’s small space mission base. A tractor was in the field miles away from the base’s heavy wall.
+
+Billy Yin felt that he had chronic obstructive pulmonary disease, which is, long time, lung disease feeling like something obstructed in the tunnel. After his three hours travel by the tube, he made his landfall at the automatic repetitive working place. He missed blue sky and sunshine again. In his eyes, the red and orange warm sunrise in Chile had been replayed again and again. The sun officially died and Neptune was spinning in the universe with Triton. There was only lamps on the cold planet. While, the space mission was a state project. Billy Yin fetched himself a yaourt aromtise a la vanille and some guimauves. He could imagine stars on their courses now light drawing on the forever night sphere. He was wearing a windcheater as it was still cold even in the building.
+
+When Billy Yin was not an orphan, he had been well looked after. He didn’t had robot eyes. His parents loved him, sending him to pianos, this and that lessons. He remembered the scenes those didn’t belong to him. They were heartwarming, vivid comparing to the single room he had now.
+
+Mr Muffin said to the Welshman, waving to Billy Yin’s back which disappeared into the dim lights: “Oh, I think I’m a false.”
+
+“What?”
+
+“That’s Boolean. I’m not a true, I’m a false.”
+
+Welshman said: “Have those warts gone on your skin?”
+
+Mr Muffin answered: “I can’t get affected by transmitted diseases, OK?”
+
+Welshman said: “we both did that but it was only me who get dirty.”
+
+Mr Muffin said: “Can’t resist them, you?”
+
+Welshman said: “I fear you, Mr Muffin, you are not human. The young men were jovial and I was viscerally attracted by them.”
+
+Mr Muffin said: “I fear for you, Mr W. I had bought this half robot from Siemens. It’s not a kid. I want a child. Not like this one.”
+
+Welshman said, lighting a cigarette: “Adopt one?”
+
+Mr Muffin said :” Could we turn him back to human? He still had a better half left.”
+
+While Billy Yin was bracing the endless calculation and tests, the two men were talking about how to raise one kid like a human woman.
+
+79 INT: DEL MR APARTMENT: RIVERTON: MORNING:
+
+Dreary little apartment. Peeling wallpaper. Faint sound of washing machines coming from below.
+
+ALMA, baby FRANCINE on her hip, coffee cup in the other hand. Watches from a window, as ENNIS tries to stat his pickup. It coughs, sputters, finally catches. ALMA sets the coffee cup down on the window still—waves—but ENNIS doesn’t see her, and drives off, dust swirling on the pavement.
+
+Another pickup pulls up in front of the house just after ENNIS leaves. The town grocer, MONROE, a chubby little man in a grocer’s apron and cap, steps out of the truck and carries three bags of groceries to the front door.
+
+ALMA opens the door and greets him.
+
+Though shy, he’s obviously thrilled to see her.
+
+MONROE
+
+(blushes)
+
+Mornin’, Alma.
+
+(smile)
+
+Where would you like ‘em?
+
+ALMA, though pleased, is surprised by this gesture.
+
+ALMA
+
+(points)
+
+Set ‘em there on the table.
+
+(pause)
+
+I told you, Monroe, you don’t got to do this.
+
+MONROE steps inside and sets the groceries on the cluttered table.
+
+MONROE
+
+(looks adoringly at ALMA)
+
+I got a few bags going over to Mrs. Fry’s. She busted her hip. You’re right on the way.
+
+(smiles)
+
+ALMA kikes MONROE’s good nature. Sets FRANCINE down and gets het purse from the counter. FRANCINE immediately toddles out of the room.
+
+ALMA
+
+Sure do appreciate it. What do I owe you?
+
+MONROE pulls the receipt out of his pocket and looks at it.
+
+MONROE
+
+Eight dollars and seventeen cents.
+
+ALMA hands a five-dollar bill to MONROE, then scrapes the bottom of her purse for change. She comes up with another two dollars in quarters. Hands them to MONROE.
+
+ALMA
+
+(embarrassed)
+
+I still owe you a dollar and some change.
+
+(looking around the messy kitchen)
+
+I swear, I had some change in a cup somewhere….
+
+MONROE
+
+Don’t you worry about it, Alma.
+
+ALMA
+
+(blushes)
+
+Why… than you, Monroe. I’ll have it next time, then.
+
+MONROE
+
+(smiles)
+
+Next time, then.
+
+MONROE tips hat to ALMA, walks to the door and exits.
+
+95 INT: GROCERY STORE: WYOMING: EARLY EVENING:
+
+ALMA, a little older and a little less skinny, though still just as cute, is clerking at the grocery store. As she rings up groceries, WE SEE MONROE, now a manager, wearing a cheap tie, flirting, smiling at her. ALMA smiles back.
+
+The customer leaves. ALMA and MONROE are alone. MONROE opens a box of Junior Nints and eats one.
+
+ALMA
+
+What are you smilin’ ’bout?
+
+MONROE
+
+(chewing, smiles even wider)
+
+Nothin’.
+
+ALMA
+
+Gotta be somethin’.
+
+MONROE
+
+Just happy, I guess.
+
+MONROE throws a Junior Mint at Alma.
+
+ALMA
+
+(laughing)
+
+Stop that!
+
+Just then, ENNIS walks into the store. MONROE and ALMA immediately stop their flirting.
+
+ENNIS walks up to ALMA’s counter. MONROE hurries back to the office, afraid of ENNIS.
+
+ENNIS
+
+(pointing to the cigarettes behind the counter)
+
+Two packs.
+
+ALMA
+
+(not getting the cigarettes)
+
+Who’s watchin’ the girls?
+
+ENIIS
+
+They’re outside in the truck.
+
+ALMA
+
+(darkens)
+
+I coulda brought home your smokes. ‘Sides, it’s way past their bedtime.
+
+ENNIS
+
+(grim)
+
+They quicker you give me the damn smokes, the quicker they’ll be home in bed.
+
+112 INT: MONROE HOUSEHOLD: THANKSGIVING NIGHT: KITCHEN:
+
+ENNIS had gallantly brought a dinner plate or two into the kitchen, set s them on the counter.
+
+Leans against the counter. ALMA is scraping food off the dinner plates.
+
+ALMA
+
+(trying to start conversation)
+
+You ought to get married again, Ennis.
+
+(pause)
+
+Me and the girls worry ‘ about you bein’ alone so much.
+
+ENNIS
+
+(feeling too big for the room)
+
+Once burned….
+
+ALMA
+
+(scraping)
+
+You still go fishin’ with Jack Twists?
+
+ENNIS
+
+Some.
+
+A beat.
+
+ALMA
+
+You know….
+
+From her tone, ENNIS knows something is coming.
+
+ALMA (cont’d)
+
+(trembling, but controlled)
+
+… I used to wonder how come you never brought any trouts home. Always said you got plenty, you know how me and the girls like fish.
+
+(pause)
+
+So one time I got your creel case open the night before you went on one a your little trips—price tag still on it after five years—and I tied a note on the end of the line. It said, ‘Hello, Ennis, bring some fish home, love, Alma’…
+
+(pause)
+
+…And then you come back lookin’ all perky and said you’d caught a bunch a browns and ate them up.
+
+Looks over at ENNIS, a stiff smile on her face.
+
+ALMA (cont’d)
+
+Remember?
+
+ENNIS doesn’t answer.
+
+ALMA is scraping harder and faster, as if she means to take the pattern off the plates.
+
+ALMA
+
+I looked in the case first chance I got and there was my note still tied there.
+
+(looks at him now)
+
+That line hadn’t touched water in its life.
+
+ALMA turns on the water in the sink, sluices the plates.
+
+ENNIS
+
+That don’t mean nothin’.
+
+ALMA
+
+(turns on him)
+
+Don’t lie, don’t try to fool me no more, Ennis. I know what it means. Jack Twist? Jack Nasty. You and him….
+
+ENNIS grabs her wrist and twists it.
+
+Tears spring to her eyes, she drops a dish.
+
+ENNIS
+
+Shut up. Mind your own business. You don’t know nothin’ about it.
+
+ALMA
+
+I’m goin’ a yell for Monroe.
+
+Winds were blowing in the ice dessert and two long shadows were smoking and cooking in front of the paper box. Rain dropped a little. Then stars came out again quickly. When the sun broke into pieces, everyone in the polar system had prepared. Noodles done, and wasabi semi-gel with wild herbs (winter springs) done after four hours. Billy Yin ended his shift, took a rest while waiting the computer to react, thinking about mum, Mary and the child, a sign of too tired. So little, so small, so short as a random particle, he was very lucky to be near two middle aged men, who had a house and visas to travel around the world. He knew that they were enjoying themselves outside the wall and he was enjoying his lab job in the unaffected pure white futuristic building. And they were pervert and he was the last hope to find the next sun.
+
+### TALK ABOUT FIRE EXIT.
+Professor Muffin Tin finished his ASDA whole fat milk, with a thought that vegetarian and not vegetarian have no much difference: just switched from meat to non meat source of protein. He thanked ASDA as in Tesco he found things were limited and expensive. From the third world, he had to be careful with money as he knew in this old world the rich had their own reasons to be rich. In brief, he admitted he had been put into a disadvantage in this, if you call it one, life of competition.
+
+Kent was nice. Teaching foreign students after years of serving the international company, Professor Muffin Tin, dressed in the most shinning way, was trying his best to teach as many students as he could. The school hadn’t put his nationality on his profile page so lots of students thought he was in exchange programme as a visiting teacher. The truth was he hadn’t been living in China for years.
+
+Kent was nice. Kent police Mr Johnson Norwich noticed the strangely dressed old Asian man with white hair and his circles of friends. One day when Mr Johnson pushed another post of newly prisoned criminals’ information online, a customized tweet showed up in the feed. It was a piece od news by the BBC about a Chinese lady in Shanghai who murdered her British husband after years of marriage and two kids. Then there was a link in the “Read more”: Chinese woman burnt in a flat with questions raised by local media. Mr Johnson was trying in Word, with ahis mouse clicking and scrolling in the browser on another screen connected to the internet. “Paper bitch,” his colleague passed by, mocking him. The picture showed a flat on fire and after Mr Johnson clicked in, a photo of Professor Muffin Tin showed up, with the caption “The dead woman among the 74 dead has a husband who had gone abroad suspiciously since the accident.” Mr Johnson searched the database of foreigners, noticing htat this Chinese man was of Swedish nationality. He then forgot the news, pasted the tweet in the official account with infos of an old man forcing a young boy into a sexual relationship then ending up with 18 years in prison. Mr Johnson knew Kent’s street like his palm.
+
+Professor Muffin Tin’s publications were mainly between his 50s and 70s. In his long, long lists of rewards, public events, books and articles, there had been no flaw after all the citations and questions. Normal researchers pushed buttons; Professor Muffin Tin always used hidden features in the machines with scripts. He understood the equipment well and sometimes made them.
+
+One late dark evening after replying all the letters from students, Professor Muffin Tin went out of the building to get into his car. He saw through all the parts behind the metal shell of the machine, confirmed no harms had been made to it, then opened the door, put himself into the seat. The bell rang in the building at the moment. Glasses were cracked; fire swallowed the research center. Again, he woke up in a McDonald’s with a cup of coffee in his right hand and a cigarette in another. He watched his wife of years from poverty to wealth and respect burning and smokes rising into Shanghai’s blue sky. He packed things and boarded onto a plane.
+
+“Sir, are you ok?”
+
+“You’re in St Jimmy Hospital. I’m the nurse.”
+
+Finally sick on bed, Professor Muffin Tin thought, I could take a rest.
+
+He had been diagnosed with several sexual transmitted diseases when he had oral, anis and virginal sex with strangers. After he discovered internet, he gave up the crush on straight colleagues and students, went directly into immoral relationships outside his marriage. In his mouth, shaft of the penis, tips of the penis and anus, there had been bumps like a skin disease. He had school hospitals and benefits to cover the treatment for free most of the time. But for the sex partners it was not that lucky. One of them was told to have AIDS when he wanted to donate, sell blood to buy a camera. They tried group sex like team work, very ugly, very exiting and no one wanted to sleep. Blood were shed. Some cried.
+
+Professor Muffin Tin could make fake gold in his lab. He called them the tears of his past. There had been no law regulating them. Three days without sex, he felt his teeth on fire. His mouth had been burnt by hot food. There was no solution to his needs. He slept in the lab in school with fans and air conditioning. He was well protected and didn’t want tot go back to the crowded you-know-me I-know-you flat of colleagues. In the big lab, he felt safe and cool to be himself, to master the machines, gravity, forces, and sometime to rub himself while waiting for the results. He cried, laughed, dealt with all the time alone unnoticed, in lack of food, drink, clothes, love, care, anything. He cried to make his eyes feel better. He cried with a bottle of Coca-Cola that made him drunk. He felt drunk with any drinks. He kicked the can to the corner of the room, then try to cry louder in the 3 am big white glassed lab. He felt sad as he had no friend. His tears filled a flask, filled a container, filled a swimming pool. Then the whole school got flooded by his tears. He said: “Oh, my dear wife, the only dearest person in the world, I had no one outside our marriage. But I had to end your life as I had adopted a blood drinking son. Blood drinking, yes, flocks of birds in the morning, coming irresistibly. How could I kill my little sweet dream? How could I stop the image around me for years with a knife? I had been in the darkness and I would be jealous if you had a long life. I had to eat you.”
+
+He had been treated badly in supermarkets outside school. Sometimes a researcher could be fragile and exposed to har, if he was not in a school or powerful company. He used fire in the war. He was like a sun burning. Yet, he had to sweat. He had to labor. He had to get up at ten in the evening and serve till nine in the night. His sweats became salt. He felt a pinch of them dropping into his eyes. His closed one eye. Diving into his memory, he remembered that once he was to pick up an office from a famous Japanese camera company who helped the lenses in the spaceship. The airport was hot and the when the Japanese came, he was like had been caught in the rain. At the airport, the plane had been delayed for three hours. Professor Muffin Tin felt that in research, when uncertainty beat certainty and god’s almighty can’t be explained, it was the weakest point when waves were stirred by known forces. Bring human, with the intelligence as the only light occasionally appearing during a storm, he needed a windcheater, something made of high tech materials to be waterproof and warm. The Japanese arrived with luggages and a bag on his back, suit of course. In 1995, Mr Muffin Tin bought his first green windcheater from a brand as a gift for himself and the cloth to visit America, where he later realized that he need a car to escape from severe weather. Cod controlled the wind and air. When he was not happy, he set fires and brought hailstorms. Professor Muffin Tin stayed in his car, with Monica Lin in a light blue windcheater in the back seat who had been pregnant, watching hails dropping down to hit the guys without preparation or prediction or weather forecasting. Now, he stayed on his sick bed, with flowers from the small community of “refugees” from China: the corrupted businessman and the teacher to restaurant owner, watching the bulbs jumping up and down in the young nurse’s tight small size uniform, finding that the bigger the better doesn’t fit for his feeling towards women.
+
+Soaked in red wine, he felt the French young man was sweet and making him fall and drunk. His every word was a signal for the old man to take off his trousers by force. The old man was like wind, the force of changing. Who could grab his free heart? It reminded him of all the Shanghainese boys he wanted to sleep with.
+
+### 19 HTTPS://DRIVE.GOOGLE.COM/FILE/D/1-ATFAYMXS5XX7SGDHZDITGPDOBGKPHMZ/VIEW?USP=SHARING
