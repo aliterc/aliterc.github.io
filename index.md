@@ -92,6 +92,20 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 0923 Trump 'live figure' thumps Merkel at Berlin's [Madame Tussauds](https://www.oxfordlearnersdictionaries.com/definition/english/madame-tussaud-s?q=Madame+Tussaud%27s) 
+
+BERLIN (Reuters) - Madame Tussauds in Berlin unveiled its latest attraction on Tuesday - a posturing Donald Trump figure striking a picture of German Chancellor [Angela Merkel](https://www.pronouncenames.com/search?name=Angela+Merkel) on a punchball.
+
+Unlike the usual wax figures, the new moving “Trump” in the Berlin museum is an actor wearing a [silicone](https://www.oxfordlearnersdictionaries.com/definition/english/silicone?q=silicone) mask modeled on the billionaire U.S. president, dancing to the Abba (Swedish pronunciation: [²abːa]) hit “Money, Money, Money”.
+
+Relations between the two leaders got off to a frosty start, although Trump said they had had a “great meeting” on the sidelines of a NATO summit last month.
+
+Trump was measured in 1997 for New York’s Madame Tussauds when he was real [estate](https://www.oxfordlearnersdictionaries.com/definition/english/estate?q=estate) developer.
+
+The Berlin museum’s spokeswoman Nina Zerbe said it took nine people and more than two months to make the silicon mask, which has real hair.
+
+“Ultimately, people find him funny and want to take pictures with him. They don’t feel [repelled](https://www.oxfordlearnersdictionaries.com/definition/english/repel#repel__4),” she said. “We noticed a year ago when we put up the wax figure that he is not someone who is [perceived](https://www.oxfordlearnersdictionaries.com/definition/english/perceive#perceive__4) as negative or whom visitors want to harm.”
+
 - 0921 PSL blasts R50m Safa-OUTsurance sponsorship deal
 
 Premier Soccer League (PSL) chairperson Irvin Khoza says the soccer body intends to take legal action against the recently announced partnership between the South Arican Football Association (Safa) and OUTsurance.
