@@ -96,7 +96,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 BERLIN (Reuters) - Madame Tussauds in Berlin unveiled its latest attraction on Tuesday - a posturing Donald Trump figure striking a picture of German Chancellor [Angela Merkel](https://www.pronouncenames.com/search?name=Angela+Merkel) on a punchball.
 
-Unlike the usual wax figures, the new moving “Trump” in the Berlin museum is an actor wearing a [silicone](https://www.oxfordlearnersdictionaries.com/definition/english/silicone?q=silicone) mask modeled on the billionaire U.S. president, dancing to the Abba (Swedish pronunciation: [²abːa]) hit “Money, Money, Money”.
+Unlike the usual wax figures, the new moving “Trump” in the Berlin museum is an actor wearing a [silicone](https://www.oxfordlearnersdictionaries.com/definition/english/silicone?q=silicone) mask modeled on the billionaire U.S. president, dancing to the [Abba (Swedish pronunciation: [²abːa])](https://www.youtube.com/watch?v=EY8GMV5ixcU) hit “Money, Money, Money”.
 
 Relations between the two leaders got off to a frosty start, although Trump said they had had a “great meeting” on the sidelines of a NATO summit last month.
 
