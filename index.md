@@ -92,7 +92,7 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 0923 Trump 'live figure' thumps Merkel at Berlin's [Madame Tussauds](https://www.oxfordlearnersdictionaries.com/definition/english/madame-tussaud-s?q=Madame+Tussaud%27s) 
+- 0923 Trump 'live figure' [thumps](https://www.oxfordlearnersdictionaries.com/definition/english/thump_1#thump_1__11) Merkel at Berlin's [Madame Tussauds](https://www.oxfordlearnersdictionaries.com/definition/english/madame-tussaud-s?q=Madame+Tussaud%27s) 
 
 BERLIN (Reuters) - Madame Tussauds in Berlin unveiled its latest attraction on Tuesday - a posturing Donald Trump figure striking a picture of German Chancellor [Angela Merkel](https://www.pronouncenames.com/search?name=Angela+Merkel) on a punchball.
 
