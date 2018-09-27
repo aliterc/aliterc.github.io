@@ -94,7 +94,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 0925 Commentary: Why the EU should cut Brexit Britain a break
 
-In scarcely more than six months Britain will leave the European Union. That departure on March 29, 2019 could be toxic and disruptive through a failure to reach a deal, hurting Britain most of all, but the EU as well. Or there could be an amicable parting of the ways. For this to happen European leaders meeting in Salzburg this week must now give some ground as the negotiations enter their final stage.
+In scarcely more than six months Britain will leave the European Union. That departure on March 29, 2019 could be toxic and disruptive through a failure to reach a deal, hurting Britain most of all, but the EU as well. Or there could be an amicable parting of the ways. For this to happen European leaders meeting in Salzburg this week must now give some ground as the negotiations enter their final stage.[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/Eb0925.m4a)
 
 Up till now the EU’s strategy has been to secure the union from copycat national revolts in other member states by taking a tough line with Britain. European leaders have closed ranks round the indivisibility of the four freedoms – in goods, services, capital and people. The EU has shunned an à-la-carte negotiation. Instead Michel Barnier, its chief negotiator, has responded to Britain’s original “red lines” such as regulatory autonomy with a menu of unpalatable options. These range from a Norway-style hug that would leave the British government a passive rule-taker, to a Canada-style trade deal far removed from Britain’s current intertwined relationship with the EU.
 
