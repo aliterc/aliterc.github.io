@@ -94,7 +94,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 0926 Above the Russian Arctic Circle, prisoners of YKW's pension reform
 
-VORKUTA, Russia (Reuters) - Russian railway worker Andrey Bugera had a singular goal: get to pension age so he can leave the polluted, frigid coal mining town above the Arctic Circle where he works and move south to live out even a brief bit of retirement in comfort.
+Bear corner, Russia (Reuters) - Russian railway worker [Andrey](https://www.pronouncenames.com/pronounce/Andrey) Bugera had a singular goal: get to pension age so he can leave the polluted, frigid coal mining town above the Arctic Circle where he works and move south to live out even a brief bit of retirement in comfort.
 
 But now that President Vladimir Putin has said he plans to raise the retirement age by five years, Bugera fears this will never happen.
 
