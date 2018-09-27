@@ -92,6 +92,12 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 0925 Commentary: Why the EU should cut Brexit Britain a break
+
+In scarcely more than six months Britain will leave the European Union. That departure on March 29, 2019 could be toxic and disruptive through a failure to reach a deal, hurting Britain most of all, but the EU as well. Or there could be an amicable parting of the ways. For this to happen European leaders meeting in Salzburg this week must now give some ground as the negotiations enter their final stage.
+
+Up till now the EU’s strategy has been to secure the union from copycat national revolts in other member states by taking a tough line with Britain. European leaders have closed ranks round the indivisibility of the four freedoms – in goods, services, capital and people. The EU has shunned an à-la-carte negotiation. Instead Michel Barnier, its chief negotiator, has responded to Britain’s original “red lines” such as regulatory autonomy with a menu of unpalatable options. These range from a Norway-style hug that would leave the British government a passive rule-taker, to a Canada-style trade deal far removed from Britain’s current intertwined relationship with the EU.
+
 - 0923 Trump 'live figure' [thumps](https://www.oxfordlearnersdictionaries.com/definition/english/thump_1#thump_1__11) Merkel at Berlin's [Madame Tussauds](https://www.oxfordlearnersdictionaries.com/definition/english/madame-tussaud-s?q=Madame+Tussaud%27s) 
 
 BERLIN (Reuters) - Madame Tussauds in Berlin unveiled its latest attraction on Tuesday - a posturing Donald Trump figure striking a picture of German Chancellor [Angela Merkel](https://www.pronouncenames.com/search?name=Angela+Merkel) on a punchball.
