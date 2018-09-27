@@ -92,6 +92,12 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 0926 Above the Russian Arctic Circle, prisoners of YKW's pension reform
+
+VORKUTA, Russia (Reuters) - Russian railway worker Andrey Bugera had a singular goal: get to pension age so he can leave the polluted, frigid coal mining town above the Arctic Circle where he works and move south to live out even a brief bit of retirement in comfort.
+
+But now that President Vladimir Putin has said he plans to raise the retirement age by five years, Bugera fears this will never happen.
+
 - 0925 Commentary: Why the EU should cut Brexit Britain a break
 
 In [scarcely](https://www.oxfordlearnersdictionaries.com/definition/english/scarcely?q=scarcely) more than six months Britain will leave the European Union. That departure on March 29, 2019 could be [toxic](https://www.oxfordlearnersdictionaries.com/definition/english/toxic?q=toxic) and [disruptive](https://www.oxfordlearnersdictionaries.com/definition/english/disruptive?q=disruptive) through a failure to reach a deal, hurting Britain most of all, but the EU as well. Or there could be an [amicable](https://www.oxfordlearnersdictionaries.com/definition/english/amicable?q=amicable) parting of the ways. For this to happen European leaders meeting in [Salzburg [ˈzaltsbʊɐ̯k]](https://en.wikipedia.org/wiki/File:Salzburg.ogg) this week must now give some ground as the negotiations enter their final stage.[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/Eb0925.m4a)
