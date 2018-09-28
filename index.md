@@ -104,7 +104,7 @@ In Chile, more than 100 Catholic clergy are being investigated over [alleged](ht
 
 Vytjie Mentor did not tell the truth about her 2010 meeting with the Gupta family during her testimony at the state capture inquiry because as members of the Hindu faith who maintain a strictly vegetarian diet, there’s no way they could have offered her “chopped up sheep” at their Saxonwold compound.
 
--Common Cold
+- Common Cold
 
 Sneezing, sore throat, a stuffy nose, coughing - everyone knows the symptoms of the common cold. It is probably the most common illness. In the course of a year, people in the United States suffer 1 billion colds.
 
