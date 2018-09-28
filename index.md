@@ -92,6 +92,18 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 0928 Breakingviews - Chinese pharma R&D mixes up a potent IPO formula
+
+HONG KONG (Reuters Breakingviews) - One of Asia’s largest pharmaceutical research and testing firms is offering Hong Kong investors a profitable spot of therapy. WuXi AppTec, already listed in Shanghai with a market value of $13 billion, carries out clinical trials and a host of other services for heavyweights like Pfizer and Roche. An overhaul of restrictive mainland rules over recent years to encourage locally developed drugs means business is thriving.
+
+- Chile Church scandal: 'How I escaped the priest who abused me for decades'
+
+In Chile, more than 100 Catholic clergy are being investigated over alleged sex crimes and attempts to cover them up. It's a scandal that haunts the reign of Pope Francis and has tipped the Chilean church into crisis. But it began decades ago with one man - Father Fernando Karadima, a parish priest in Santiago, who became Chile's most notorious sexual predator.
+
+- Ajay Gupta: Vytjie Mentor's state capture testimony riddled with lies
+
+Vytjie Mentor did not tell the truth about her 2010 meeting with the Gupta family during her testimony at the state capture inquiry because as members of the Hindu faith who maintain a strictly vegetarian diet, there’s no way they could have offered her “chopped up sheep” at their Saxonwold compound.
+
 - 0926 Above the Russian Arctic Circle, prisoners of YKW's pension reform
 
 Bear corner, Russia (Reuters) - Russian railway worker [Andrey](https://www.pronouncenames.com/pronounce/Andrey) Bugera had a singular goal: get to pension age so he can leave the polluted, frigid coal mining town above the Arctic Circle where he works and move south to live out even a brief bit of retirement in comfort.
