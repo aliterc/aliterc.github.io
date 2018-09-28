@@ -130,13 +130,13 @@ Sneezing, sore throat, a stuffy nose, coughing -- everyone knows the symptoms of
 
 What can you do for your cold or cough symptoms? Besides drinking lots of fluids and getting plenty of rest, you may decide to take medicines. There are lots of different cold and cough medicines, and they do different things.
 
-Nasal decongestants - unclog a stuffy nose
+[Nasal](https://www.oxfordlearnersdictionaries.com/definition/english/nasal?q=Nasal) [decongestants](https://www.oxfordlearnersdictionaries.com/definition/english/decongestant#decongestant__4) - [unclog](https://www.oxfordlearnersdictionaries.com/definition/american_english/unclog?q=unclog) a stuffy nose
 
 Cough suppressants - quiet a cough
 
-Expectorants - loosen mucus so you can cough it up
+Expectorants - loosen [mucus](https://www.oxfordlearnersdictionaries.com/definition/english/mucus?q=mucus) so you can cough it up
 
-Antihistamines - stop runny noses and sneezing
+[Antihistamines](https://www.oxfordlearnersdictionaries.com/definition/american_english/antihistamine?q=antihistamine) - stop runny noses and sneezing
 
 Pain relievers - ease fever, headaches, and minor aches and pains
 
