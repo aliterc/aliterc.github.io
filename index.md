@@ -104,6 +104,44 @@ In Chile, more than 100 Catholic clergy are being investigated over [alleged](ht
 
 Vytjie Mentor did not tell the truth about her 2010 meeting with the Gupta family during her testimony at the state capture inquiry because as members of the Hindu faith who maintain a strictly vegetarian diet, there’s no way they could have offered her “chopped up sheep” at their Saxonwold compound.
 
+-Common Cold
+
+Sneezing, sore throat, a stuffy nose, coughing - everyone knows the symptoms of the common cold. It is probably the most common illness. In the course of a year, people in the United States suffer 1 billion colds.
+
+You can get a cold by touching your eyes or nose after you touch surfaces with cold germs on them. You can also inhale the germs. Symptoms usually begin 2 or 3 days after infection and last 2 to 14 days. Washing your hands and staying away from people with colds will help you avoid colds.
+
+There is no cure for the common cold. But there are treatments that can make you feel better while you wait for the cold to go away on its own:
+
+Getting plenty of rest
+
+Drinking fluids
+
+Gargling with warm salt water
+
+Using cough drops or throat sprays
+
+Taking over-the-counter pain or cold medicines
+
+However, do not give aspirin to children. And do not give cough medicine to children under four.
+
+Cold and Cough Medicines
+
+Sneezing, sore throat, a stuffy nose, coughing -- everyone knows the symptoms of the common cold. It is probably the most common illness. Every year, adults get about 2-3 colds, and children get even more.
+
+What can you do for your cold or cough symptoms? Besides drinking lots of fluids and getting plenty of rest, you may decide to take medicines. There are lots of different cold and cough medicines, and they do different things.
+
+Nasal decongestants - unclog a stuffy nose
+
+Cough suppressants - quiet a cough
+
+Expectorants - loosen mucus so you can cough it up
+
+Antihistamines - stop runny noses and sneezing
+
+Pain relievers - ease fever, headaches, and minor aches and pains
+
+Before taking these medicines, read the labels carefully. Many cold and cough medicines contain the same active ingredients. For example, taking too much of certain pain relievers can lead to serious injury. Do not give cold or cough medicines to children under four, and don't give aspirin to children. Finally, antibiotics won't help a cold.
+
 - 0926 Above the Russian Arctic Circle, prisoners of YKW's pension reform
 
 Bear corner, Russia (Reuters) - Russian railway worker [Andrey](https://www.pronouncenames.com/pronounce/Andrey) Bugera had a singular goal: get to pension age so he can leave the polluted, frigid coal mining town above the Arctic Circle where he works and move south to live out even a brief bit of retirement in comfort.
