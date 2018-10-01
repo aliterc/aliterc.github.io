@@ -423,6 +423,26 @@ The first round of what U.S. President Donald Trump called “the most biting sa
 
 Yet economic pressure is not the only tool the United States and its allies are using to counter Iran. In recent months, the Trump administration has been quietly working to forge a new security alliance, with the six members of the Gulf Cooperation Council (GCC) – Saudi Arabia, the United Arab Emirates, Bahrain, Kuwait, Qatar, and Oman – as well as Egypt and Jordan, to counter what it views as aggressive Iranian expansion in the region. Tentatively known as the Middle East Strategic Alliance (MESA) – but already nicknamed “Arab NATO” by the international press ­– U.S. and Arab officials say the coalition is being planned in an effort to expand cooperation on counterterrorism, missile defense and military training, partly to address the security challenges posed by Iran and its proxies.
 
+- 0623 Woman in critical conditon after four- vechicle collison in Mississauga 
+
+- The opportunity in our next municipal election
+
+- Burglar killed victim by forcing a sock into his mouth
+
+- ANC Limpopo conference at risk of interdiction 
+
+- Maya 2018- Sculpting 
+
+- 0619 The incoming Ford administration orders freeze on hiring and discretionary spending
+
+- Child poverty linked to discrimination and systemic inequality, study suggests 
+
+- Posters advertising a charity duck race were seized and impounded by council officials 
+
+- NPA had "nothing to hide"but refuses to discolse full "Sunday Evenings" docket
+
+- Cake au citron et son d'avoine IG bas
+
 - 0618 ratatouille
 
 - Monday World Cup preview: Loose England squad opens vs. Tunisia amid high expectations
