@@ -423,6 +423,38 @@ The first round of what U.S. President Donald Trump called “the most biting sa
 
 Yet economic pressure is not the only tool the United States and its allies are using to counter Iran. In recent months, the Trump administration has been quietly working to forge a new security alliance, with the six members of the Gulf Cooperation Council (GCC) – Saudi Arabia, the United Arab Emirates, Bahrain, Kuwait, Qatar, and Oman – as well as Egypt and Jordan, to counter what it views as aggressive Iranian expansion in the region. Tentatively known as the Middle East Strategic Alliance (MESA) – but already nicknamed “Arab NATO” by the international press ­– U.S. and Arab officials say the coalition is being planned in an effort to expand cooperation on counterterrorism, missile defense and military training, partly to address the security challenges posed by Iran and its proxies.
 
+- 0624 There will be a giant flame- breathing dragon on Toronto roads this weekend
+
+There is a workshop in this city where a [ragtag](https://www.oxfordlearnersdictionaries.com/definition/english/ragtag?q=ragtag) collective of creative Toronto folks are working in the belly of giant metal beasts. Near Dupont and Ossington, it is known as The 4tress, and this is the hub of Toronto’s [mutant](https://www.oxfordlearnersdictionaries.com/definition/english/mutant_1?q=mutant) vehicle movement.
+
+Also known as art cars, there are currently four of them in various states of construction, with metal frames and innards being worked on by a volunteer army of artists, designers and other handy people who spend their days in the advertising industry or working on sets for the TV and film production and other trades.
+
+Heavy Meta is test fired after its head was swung into position.  (BERNARD WEIL / TORONTO STAR)
+
+Heavy Meta is a fire-breathing dragon that is fully functioning and has already made over a dozen trips to Burning Man and other regional events. It will be on display during Pride at the stage at 526 Church St. from 5 p.m. Saturday..
+
+Also in development are the boat-inspired Ark Car, the all-female-led Tarna the Jackalope, and another that the team hopes to keep under wraps and make a splash with upon completion.
+
+Inspired by Burning Man, where art cars and other contraptions are part of that desert-based festival’s counter-culture movement, the ringleaders of this local movement — which literally declares itself a travelling circus when it crosses the border — are Kevin Bracken and Marie Poliak, a husband-and-wife team who have designed several of these machines, along with fabricator Matt Von Wilde.
+
+Bracken is one of the founders of Newmindspace, the crew that gained prominence for running events like the Pillow Fights and Lightsaber battles in this city’s public squares.
+
+“A big part of what we’ve done is because of Burning Man. We started dating there and it’s been a large part of our lives. This year will be my 13th year. Every year that I’ve gone, I’d said Toronto could use more of this,” says Bracken, 31. “Over the years, my real goal is to make Toronto more like an acid trip, to make it more like this big collective hallucination that we create together.”
+
+Bracken and Poliak took their first vehicle, The Prodigal Swan, to Burning Man, but decided that it was too small, as it only held six people. The Swan is now permanently installed on Fremont St. in Las Vegas.
+
+With larger ambitions, they set out to create Heavy Meta, a dragon built on a GMC school bus base that can hold over 20 people — and shoot fire out of its mouth and tail.
+
+Stacy Campbell is the fire lead on Heavy Meta, when she’s not busy working on special effects on sets around town including The Boys, The Expanse, Umbrella Academy and American Gods. She got involved because the team was lacking people who had fire experience, and it gave her the opportunity to build her own system.
+
+- Indside the offshore tax scheme that left iconic Olympian Donovan Bailey owing nearly $2.3 million in unpaid taxes
+
+- Mum of newborn boy left hospital without her son and hasn't seen since 
+
+- Kroos strike brings Germany back from the brink
+
+- PG&E takes $2.5 billion charge related to California wildfires 
+
 - 0623 Woman in critical conditon after four- vechicle collison in Mississauga 
 
 - The opportunity in our next municipal election
