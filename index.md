@@ -661,11 +661,11 @@ Stacy Campbell is the fire lead on Heavy Meta, when she’s not busy working on 
 
 - After effects user guide> color 
 
-- 0615 charlotte aux peches
+- 0615 [charlotte aux peches](http://chefsimon.com/gourmets/chef-simon/recettes/charlotte-aux-peches--3)
 
- crème bavaroise 
+ [crème bavaroise](http://chefsimon.com/gourmets/chef-simon/recettes/creme-bavaroise) 
  
- pocher des fruits au cirop
+ [pocher des fruits au cirop](http://chefsimon.com/gourmets/chef-simon/recettes/pocher-des-fruits-au-sirop)
 
 - The slow death of Newport's once-thriving university and the chilling effect it is having on the city
 
