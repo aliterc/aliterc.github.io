@@ -423,6 +423,54 @@ The first round of what U.S. President Donald Trump called “the most biting sa
 
 Yet economic pressure is not the only tool the United States and its allies are using to counter Iran. In recent months, the Trump administration has been quietly working to forge a new security alliance, with the six members of the Gulf Cooperation Council (GCC) – Saudi Arabia, the United Arab Emirates, Bahrain, Kuwait, Qatar, and Oman – as well as Egypt and Jordan, to counter what it views as aggressive Iranian expansion in the region. Tentatively known as the Middle East Strategic Alliance (MESA) – but already nicknamed “Arab NATO” by the international press ­– U.S. and Arab officials say the coalition is being planned in an effort to expand cooperation on counterterrorism, missile defense and military training, partly to address the security challenges posed by Iran and its proxies.
 
+- 0808 Gigot d'agneau
+
+- 0807 Simple banking on phone and chatting app
+
+- 0806 U.S. products charged more in China
+
+- G.M.'s Buick hated by U.S. car union
+
+- 0805 Spying by chips
+
+- 0804 Two airlines merged
+
+- Species evasions in U.S. 
+
+- 0803 Brexit deal
+
+- U.S. Russia meeting
+
+- 0802 Jewel stolen in Sweden
+
+- 0801 Enercare to be bought
+
+- 0731 Reuters journalists jailed
+
+- Guyana's anger
+
+- 0730 Federal minister to unveil support for steel and aluminum sectors
+
+- Catch up with reality, Cosas
+
+- 0729 Blue Jays being run more than a political party than a baseball franchise 
+
+- Tech firms should be made libable for 'fake news' on sites: UK lawmakers 
+
+- 0728 Boulettes de boeuf sauce Madère
+
+- Royal visit: Prince William and Kate make final Vancouver stop at Kisilano Coat Guard Station
+
+- More than 27,000 people sign petition to stop Seven Crossing being renamed Prince of Wales Bridge
+
+- Economy, dollar, trade key to U.S. stocks' global edge
+
+- 0727 La coquille Saint-Jacques s'achète vivante et fermée
+
+- Tensions grows in Labour leadership over Margaret Hodge case
+
+- Fox shareholders approve Walt Disney's $71 billion deal
+
 - 0724 Sibérienne de fruits de la passion
 
 - What is the IHRA defination of antisemitism? And why has Labour outraged Jews by rejecting it?
