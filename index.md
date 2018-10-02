@@ -92,7 +92,9 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 0928 Breakingviews - Chinese [pharma](https://www.oxfordlearnersdictionaries.com/definition/english/pharma?q=pharma+) R&D mixes up a [potent](https://www.oxfordlearnersdictionaries.com/definition/english/potent?q=potent+) IPO formula
+- 0928 Pour la garniture
+
+- Breakingviews - Chinese [pharma](https://www.oxfordlearnersdictionaries.com/definition/english/pharma?q=pharma+) R&D mixes up a [potent](https://www.oxfordlearnersdictionaries.com/definition/english/potent?q=potent+) IPO formula
 
 HONG KONG (Reuters Breakingviews) - One of Asia’s largest [pharmaceutical](https://www.oxfordlearnersdictionaries.com/definition/english/pharmaceutical_1?q=pharmaceutical) research and testing firms is offering Hong Kong investors a profitable spot of therapy. WuXi AppTec, already listed in Shanghai with a market value of $13 billion, carries out clinical trials and a host of other services for heavyweights like Pfizer/ˈfaɪzər/ and [Roche](https://www.pronouncenames.com/search?name=Roche). An [overhaul](https://www.oxfordlearnersdictionaries.com/definition/english/overhaul_1?q=overhaul+) of restrictive mainland rules over recent years to encourage locally developed drugs means business is thriving.
 
@@ -154,7 +156,9 @@ In [scarcely](https://www.oxfordlearnersdictionaries.com/definition/english/scar
 
 Up till now the EU’s strategy has been to secure the union from [copycat](https://www.oxfordlearnersdictionaries.com/definition/english/copycat_1?q=copycat) national [revolts](https://www.oxfordlearnersdictionaries.com/definition/english/revolt_1#revolt_1__13) in other member states by taking a tough line with Britain. European leaders have closed ranks round the indivisibility of the four freedoms – in goods, services, capital and people. The EU has [shunned](https://www.oxfordlearnersdictionaries.com/definition/english/shun#shun__4) an à-la-carte negotiation. Instead [Michel](https://www.pronouncenames.com/pronounce/Michel) [Barnier](https://www.pronouncenames.com/pronounce/Barnier), its chief negotiator, has responded to Britain’s original “red lines” such as [regulatory](https://www.oxfordlearnersdictionaries.com/definition/english/regulatory?q=regulatory) [autonomy](https://www.oxfordlearnersdictionaries.com/definition/english/autonomy?q=autonomy) with a menu of unpalatable options. These range from a Norway-style hug that would leave the British government a passive rule-taker, to a Canada-style trade deal far removed from Britain’s current intertwined relationship with the EU.
 
-- 0923 Trump 'live figure' [thumps](https://www.oxfordlearnersdictionaries.com/definition/english/thump_1#thump_1__11) Merkel at Berlin's [Madame Tussauds](https://www.oxfordlearnersdictionaries.com/definition/english/madame-tussaud-s?q=Madame+Tussaud%27s) 
+- 0923 Ravioles de gambas
+
+- Trump 'live figure' [thumps](https://www.oxfordlearnersdictionaries.com/definition/english/thump_1#thump_1__11) Merkel at Berlin's [Madame Tussauds](https://www.oxfordlearnersdictionaries.com/definition/english/madame-tussaud-s?q=Madame+Tussaud%27s) 
 
 BERLIN (Reuters) - Madame Tussauds in Berlin unveiled its latest attraction on Tuesday - a posturing Donald Trump figure striking a picture of German Chancellor [Angela Merkel](https://www.pronouncenames.com/search?name=Angela+Merkel) on a punchball.
 
@@ -168,7 +172,9 @@ The Berlin museum’s spokeswoman Nina Zerbe said it took nine people and more t
 
 “Ultimately, people find him funny and want to take pictures with him. They don’t feel [repelled](https://www.oxfordlearnersdictionaries.com/definition/english/repel#repel__4),” she said. “We noticed a year ago when we put up the wax figure that he is not someone who is [perceived](https://www.oxfordlearnersdictionaries.com/definition/english/perceive#perceive__4) as negative or whom visitors want to harm.”
 
-- 0921 PSL blasts R50m Safa-OUTsurance sponsorship deal
+- 0921 Embeurrée de chou
+
+- PSL blasts R50m Safa-OUTsurance sponsorship deal
 
 Premier Soccer League (PSL) chairperson Irvin Khoza says the soccer body intends to take legal action against the recently announced partnership between the South Arican Football Association (Safa) and OUTsurance.
 
@@ -422,6 +428,54 @@ Your health care provider usually diagnoses genital warts by seeing them. The wa
 The first round of what U.S. President Donald Trump called “the most biting sanctions ever imposed” against Tehran went into effect on August 7. “Anyone doing business with Iran will NOT be doing business with the United States,” Trump continued, in a tweet posted that morning. An even more damaging second round of U.S. sanctions against the Islamic Republic, reinstated after Washington pulled out of the 2015 nuclear deal between Iran and world powers, is expected to take effect in November.  
 
 Yet economic pressure is not the only tool the United States and its allies are using to counter Iran. In recent months, the Trump administration has been quietly working to forge a new security alliance, with the six members of the Gulf Cooperation Council (GCC) – Saudi Arabia, the United Arab Emirates, Bahrain, Kuwait, Qatar, and Oman – as well as Egypt and Jordan, to counter what it views as aggressive Iranian expansion in the region. Tentatively known as the Middle East Strategic Alliance (MESA) – but already nicknamed “Arab NATO” by the international press ­– U.S. and Arab officials say the coalition is being planned in an effort to expand cooperation on counterterrorism, missile defense and military training, partly to address the security challenges posed by Iran and its proxies.
+
+- 0906 The Welsh brand whose clothes are on sale at Topshop just a year after launching
+
+- Freddy David to appeal six year prison sentence for fraud
+
+- The families split by Venezuela's crisis
+
+- DA goes head-to-head with SABC over Ramphosa braodcast
+
+- Clafoutis aux abricots et au chocolate 
+
+- Mousse chocolate noir 
+
+- 0902 The bridge that binds Lagos together 
+
+- Commentary: It shouldn't be so hard to give money to charity
+
+- hog
+
+- Waterzoi de poulet
+
+- Cuire un concassé de tomates
+
+- Moulage des chocolats
+
+- Fenouil
+
+- Millefeuille 
+
+- La bisque de homard 
+
+- Ready, steady, splash! Malta celebrates historic greasy pole
+
+- 0826 le tourage de la pate levée fauilletée
+
+- Commentary: Alex Jones and Boris Johnson- pioneers in the new politics
+
+- 0821 How quinoa is changing farmers' lives in Peru
+
+- 0820 Soupe à l'oignon gratinée
+
+- U.S. values stocks capitalize on 'FANG' stumbles, with room to run
+
+- 0819 China Tower debut reveals costs of tech leadership
+
+- 0818 VW's CEO was told about emissions software months before scandal: Del Spiegel
+
+- The ulitmate marriage of fashion and function: a Ziploc tote bag
 
 - 0808 Gigot d'agneau
 
