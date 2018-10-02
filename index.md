@@ -679,6 +679,10 @@ Stacy Campbell is the fire lead on Heavy Meta, when she’s not busy working on 
 
 - Uber looks to expand its platform to other transpotation method
 
+- 0608 Artists of all types hitting the streets for politically engaged Luminato Festival
+
+- Trump’s beggar-thy-neighbour trade strategy is anything but foolish
+
 ### trades
 - be happy.
 - taller. sleep at the same time, go to gym. 
