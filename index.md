@@ -112,6 +112,20 @@ Brent crude lost 37 cents to $84.61 per barrel by 1200 GMT on Tuesday after reac
 
 China’s Sinopec Corp is halving loadings of crude oil from Iran this month, as the state refiner comes under intense pressure from Washington.
 
+- A script is a series of commands that tells an application to perform a series of operations. You can use scripts in most Adobe applications to automate repetitive tasks, perform complex calculations, and even use some functionality not directly exposed through the graphical user interface. For example, you can direct After Effects to reorder the layers in a composition, find and replace source text in text layers, or send an email message when rendering is complete.
+
+- Hip Injuries and Disorders
+
+Your hip is the joint where your femur (thigh bone) meets your pelvis (hip bone). There are two main parts: a ball at the end of the femur, which fits in a socket in the pelvis. Your hip is known as a ball-and-socket joint. This is because you have a ball at the end of your femur, and it fits into a socket in your pelvis. This makes your hips very stable and allows for a wide range of motion. When they are healthy, it takes great force to hurt them. However, playing sports, running, overuse, or falling can sometimes lead to hip injuries such as
+
+Strains
+
+Bursitis
+
+Dislocations
+
+Fractures
+
 - 0928 Pour la garniture
 
 - Breakingviews - Chinese [pharma](https://www.oxfordlearnersdictionaries.com/definition/english/pharma?q=pharma+) R&D mixes up a [potent](https://www.oxfordlearnersdictionaries.com/definition/english/potent?q=potent+) IPO formula
