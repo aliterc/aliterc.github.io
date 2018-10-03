@@ -126,6 +126,92 @@ Dislocations
 
 Fractures
 
+- 1002 Electric cars cast growing shadow on profits
+
+PARIS (Reuters) - Electric cars are poised to arrive en masse in European showrooms after years of hyped concept-car launches and billions in investment by automakers and suppliers.
+
+FILE PHOTO: The EQC, the first fully electric Mercedes car is shown at a presentation in Stockholm, Sweden September 4, 2018. REUTERS/Esha Vaish/File Photo
+
+Now comes the hard part: selling them at a profit.
+
+Battery models making their car-show debut in Paris this week, from PSA Group’s (PEUP.PA) electric DS3 Crossback to the Mercedes (DAIGn.DE) EQC, will erode profitability as they struggle to stay in the black, executives generally acknowledge.
+
+But concerns are mounting that the impact could be worse, as consumers resist paying more for electrified vehicles - forcing carmakers to sell them at a bigger loss to meet emissions goals.
+
+“What everyone needs to realize is that clean mobility is like organic food – it’s more expensive,” said Carlos Tavares, chief executive of Peugeot, Citroen and Opel manufacturer PSA.
+
+A Sept. 25 profit warning by BMW (BMWG.DE), blamed in part on electrification costs and tightening emissions rules, was “a first alarm signal”, Tavares said in a weekend radio interview.
+
+“Either we accept paying more for clean mobility, or we put the European auto industry in jeopardy.”
+
+Underlining the turbulence facing automakers, British Prime Minister Theresa May will confront Conservative rebels demanding a harder Brexit stance at her party’s annual conference, just as the Paris show gets underway on Tuesday.
+
+On its second day, the European Parliament votes on plans to cut carbon dioxide car emissions by as much as 45 percent by 2030 from an average 95 grammes per kilometer in 2021 - a goal many automakers are already in danger of missing, on pain of fines running to hundreds of millions of euros.
+
+PRICED TO PUSH
+
+After declining for a decade, new-vehicle carbon emissions are rising again as customers flock from cars to SUVs, and from diesel to gasoline engines. Diesels emit more nitrogen oxides and particulates, but less CO2.
+
+Early signs suggest electric-car prices may fall sooner and faster than production costs, as carmakers adjust for stalled emissions progress and weak consumer appetite. That promises more red ink, as discounted battery car sales finally take off.
+
+Volkswagen (VOWG_p.DE) has said the ID hatchback, due to open the brand’s electric onslaught next year, will be priced close to conventionally powered versions of the Golf compact.
+
+“VW is about to launch a load of electric vehicles at the same price as gasolines, and therefore at a loss,” said Laurent Petizon, a managing director at consulting firm AlixPartners.
+
+“Our interpretation is that the 2021 fines have already been factored into their sales strategy,” he said. “Rather than pay penalties they prefer to lose money on vehicles and get the market going.”
+
+Volkswagen declined to discuss pricing in detail. “We want our electric cars to be a real alternative to a reasonably equipped Golf Diesel,” a spokesman said.
+
+Volkswagen and Mercedes parent Daimler, which between them have announced 30 billion euros ($35 billion) in electrification investment, both warned last month that it would not be enough.
+
+They and other carmakers are also mandated to sell more electric cars in China and a group of U.S. states led by California. More than 200 electric and plug-in model launches are already scheduled globally over the next three years.
+
+COST GAP
+
+Electric cars still cost 7,800 euros more to produce on average than conventional ones, AlixPartners calculates. Plug-in hybrids - which combine a smaller rechargeable battery with a combustion engine - overshoot by 5,000 euros.
+
+When that cost gap is reflected in the price, few are sold.
+
+Mass-market electrics such as the Renault (RENA.PA) Zoe and Nissan (7201.T) Leaf have been on sale for most of the current decade, and heavily subsidized in Europe, while Tesla (TSLA.O) has made inroads into the premium business. Yet pure-electric cars claim just 1 percent of the market overall.
+
+Despite their higher cost, BMW plug-in models are already priced broadly on a par with diesels. The luxury carmaker acknowledges that their margins are significantly thinner.
+
+Mercedes also says the EQC electric SUV will be priced close to its GLC cousin to tackle Tesla’s $49,000 Model 3.
+
+“It absolutely is impacting the profitability of the industry,” said Rebecca Lindland, a senior analyst at Kelley Blue Book, which tracks vehicle pricing. “Demand doesn’t justify investment at all - it’s all regulation.”
+
+Which is why, on this subject more than most, European carmakers talk from both sides of their mouths. While executives exude confidence for investors’ and customers’ benefit, their Brussels lobby group ACEA warns of an imminent threat to the region’s 3.4 million automotive manufacturing jobs.
+
+“The conditions for such a systemic change clearly aren’t met, and consumers just aren’t ready for full-electric,” ACEA Secretary General Erik Jonnaert said recently.
+
+Automotive suppliers are also feeling exposed.
+
+“We’ve taken risks as a company,” said Jacques Aschenbroich, chief executive of Valeo (VLOF.PA), a major manufacturer of electrification components and systems. “We have invested a lot even though the market doesn’t exist.”
+
+SCALE EFFECTS
+
+Carmakers are demanding increased public investment in recharging networks - which may yet awaken mass demand.
+
+Economies of scale should also bring some relief. But lithium-ion batteries, which claim 40 percent of an electric car’s value, face global cobalt and nickel shortages that will pull the other way, inflating costs as production volumes rise.
+
+Perhaps more critically, generous government sales subsidies are unlikely to survive much growth. In markets where incentives have been dropped, electric car sales have fallen.
+
+Renault is discounting its recently upgraded Zoe in the UK market with a 5,000 pound ($6,500) trade-in bonus, in addition to the government’s 4,500 pound plug-in incentive.
+
+French rival PSA will price its new rechargeable hybrids to match diesel leasing rates, program director Olivier Salvat told reporters on a recent factory visit - adding that the carmaker aimed to avoid losing money on each vehicle sold.
+
+“We don’t launch vehicles with negative operating margins,” Salvat said.
+
+German luxury carmakers including Volkswagen Group, which includes Audi and Porsche, could put up with losses on electrified vehicles if it enables them to keep selling their biggest earners, upscale SUVs and large sedans.
+
+That would leave mid-market competitors such as PSA and Renault, which can ill afford to sell large volumes of electric cars below cost, in a tougher bind.
+
+“In electromobility you have to be a cost leader,” BMW research and development chief Klaus Froehlich told Reuters.
+
+“If you are not a cost leader you will not survive.”
+
+($1 = 0.7675 pounds)
+
 - 1001 Tesla's SEC deal provides [ammunition](https://www.oxfordlearnersdictionaries.com/definition/english/ammunition?q=ammunition) for U.S. [probe](https://www.oxfordlearnersdictionaries.com/definition/english/probe_2), investor lawsuits
 
 (Reuters) - Tesla Inc’s (TSLA.O) settlement with U.S. regulators will help [soothe](https://www.oxfordlearnersdictionaries.com/definition/english/soothe?q=soothe) investors calling for more oversight of Chief Executive Elon Musk, experts said, even as it gives ammunition to short-sellers pursing separate cases and to a probe by the Justice Department.
