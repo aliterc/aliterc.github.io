@@ -116,15 +116,15 @@ China’s Sinopec Corp is halving loadings of crude oil from Iran this month, as
 
 - Hip Injuries and Disorders
 
-Your hip is the joint where your femur (thigh bone) meets your pelvis (hip bone). There are two main parts: a ball at the end of the femur, which fits in a socket in the pelvis. Your hip is known as a ball-and-socket joint. This is because you have a ball at the end of your femur, and it fits into a socket in your pelvis. This makes your hips very stable and allows for a wide range of motion. When they are healthy, it takes great force to hurt them. However, playing sports, running, overuse, or falling can sometimes lead to hip injuries such as
+Your hip is the joint where your [femur](https://www.oxfordlearnersdictionaries.com/definition/english/femur?q=femur) (thigh bone) meets your [pelvis](https://www.oxfordlearnersdictionaries.com/definition/english/pelvis?q=pelvis) (hip bone). There are two main parts: a ball at the end of the femur, which fits in a socket in the pelvis. Your hip is known as a ball-and-socket joint. This is because you have a ball at the end of your femur, and it fits into a socket in your pelvis. This makes your hips very stable and allows for a wide range of motion. When they are healthy, it takes great force to hurt them. However, playing sports, running, overuse, or falling can sometimes lead to hip injuries such as
 
-Strains
+[Strains](https://www.oxfordlearnersdictionaries.com/definition/english/strain_1#strain_1__11)
 
-Bursitis
+[Bursitis](https://www.oxfordlearnersdictionaries.com/definition/english/bursitis?q=Bursitis)
 
-Dislocations
+[Dislocations](https://www.oxfordlearnersdictionaries.com/definition/english/dislocation#dislocation__4)
 
-Fractures
+[Fractures](https://www.oxfordlearnersdictionaries.com/definition/english/fracture_1#fracture_1__11)
 
 - 1002 Electric cars cast growing shadow on profits
 
