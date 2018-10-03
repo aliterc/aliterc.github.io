@@ -92,7 +92,7 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1003 mercredi octobre
+- 1003 [mercredi](https://www.collinsdictionary.com/dictionary/french-english/mercredi) [octobre](https://www.collinsdictionary.com/dictionary/french-english/octobre)
 
 Iran oil minister [reiterates](https://www.oxfordlearnersdictionaries.com/definition/english/reiterate#reiterate__4) Trump to blame for rising [crude](https://www.oxfordlearnersdictionaries.com/definition/english/crude_2) prices
 
