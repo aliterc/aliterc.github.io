@@ -126,6 +126,25 @@ Dislocations
 
 Fractures
 
+- 0929 Plug-ins
+
+Plug-ins are small software modules—with filename extensions such as .aex, .pbk, .pbg, and .8bi—that add functionality to an application. Effects in After Effects are implemented as plug-ins, as are some features for importing and working with certain file formats. The Photoshop Camera Raw plug-in, for example, provides After Effects with its ability to work with Camera Raw files.
+
+Install and load plug-ins
+You can obtain plug-ins for After Effects and other Adobe products from Adobe or other vendors. For specific instructions for installing a plug-in, see its documentation.
+
+When After Effects starts, it loads plug-ins from several folder, including the Plug-ins folder. If a plug-in doesn’t come with an installer or with specific instructions for its installation, then you can usually install the plug-in by placing it in the Plug-ins folder.
+
+By default, the Plug-ins folder is in the following location:
+
+(Windows) Program Files\Adobe\Adobe After Effects <version>\Support Files
+
+(Mac OS) Applications/Adobe After Effects <version>
+
+Several plug-ins come with After Effects and are automatically installed in the Plug-ins folder.
+
+When exchanging After Effects projects between computer systems, make sure that the plug-ins that the project depends on are installed on both systems. Similarly, if you're rendering a composition with multiple computers on a network, make sure that all plug-ins used in the composition are installed on all rendering computers.
+
 - 0928 Pour la garniture
 
 - Breakingviews - Chinese [pharma](https://www.oxfordlearnersdictionaries.com/definition/english/pharma?q=pharma+) R&D mixes up a [potent](https://www.oxfordlearnersdictionaries.com/definition/english/potent?q=potent+) IPO formula
