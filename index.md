@@ -242,6 +242,78 @@ An expanded board and new chairman offers hope “a true check on Elon will emer
 
 Tesla and Musk ended up accepting harsher penalties than the SEC originally proposed to settle the claims, according to the person familiar with the deal. The SEC initially was ready to accept a fine of a few million dollars and Musk’s removal as chairman for two years, but raised its demands after Musk balked at that offer, the person said.
 
+- 0930 Travel First Aid Kit Essentials
+
+A travel first aid kit may contain these items:
+
+[Adhesive](https://www.oxfordlearnersdictionaries.com/definition/english/adhesive_1?q=Adhesive) tape
+
+4" x 4" sterile gauze pads
+
+Antacid -- for indigestion
+
+Antidiarrheal (Imodium, Pepto-Bismol, for example)
+
+Antihistamine cream
+
+Antiseptic agent (small bottle liquid soap) -- for cleaning wounds and hands
+
+Aspirin -- for mild pain, heart attack
+
+Adhesive bandages (all sizes)
+
+Diphenhydramine (Benadryl) or loratadine (Claritin) -- oral antihistamine
+
+Topical corticosteroids, such as over the counter Hydrocortisone 1% for rashes
+
+Aloe vera topical gel or cream for burn relief
+
+Book on first aid
+
+Cigarette lighter -- to sterilize instruments and to be able to start a fire in the wilderness (to keep warm and to make smoke to signal for help, for examples)
+
+Cough medication
+
+Dental kit -- for broken teeth, loss of crown or filling
+
+Exam gloves
+
+Small flashlight
+
+Ibuprofen (Advil is one brand name)
+
+Insect repellant
+
+Knife (small Swiss Army-type)
+
+Moleskin -- to apply to blisters or hot spots
+
+Nasal spray decongestant -- for nasal congestion from colds or allergies
+
+Nonadhesive wound pads (Telfa)
+
+Polysporin antibiotic ointment
+
+Oral decongestant
+
+Personal medications and items
+
+Phone card with at least 60 minutes of time (and not a close expiration date) plus at least 10 quarters for pay phones and a list of important people to reach in an emergency
+
+Plastic resealable bags (oven and sandwich)
+
+Pocket mask for CPR
+
+Safety pins (large and small)
+
+Scissors
+
+Sunscreen with an SPF of 30 or more
+
+Thermometer
+
+Tweezers
+
 - 0929 Plug-ins
 
 Plug-ins are small software modules—with filename extensions such as .aex, .pbk, .pbg, and .8bi—that add functionality to an application. Effects in After Effects are implemented as plug-ins, as are some features for importing and working with certain file formats. The Photoshop Camera Raw plug-in, for example, provides After Effects with its ability to work with Camera Raw files.
