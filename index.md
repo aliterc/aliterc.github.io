@@ -92,6 +92,26 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1003 mercredi octobre
+
+Iran oil minister [reiterates](https://www.oxfordlearnersdictionaries.com/definition/english/reiterate#reiterate__4) Trump to blame for rising [crude](https://www.oxfordlearnersdictionaries.com/definition/english/crude_2) prices
+
+LONDON (Reuters) - Iran’s oil minister reiterated on Tuesday that U.S. President Donald Trump was responsible for rising oil prices, and warned that the only way to bring balance to the market was to suspend sanctions on Tehran.
+
+The United States aims to reduce Tehran’s oil revenue to zero in an effort to force Iran’s leadership to change its behavior in the region. U.S. officials have said new sanctions will be imposed on Iran’s oil sector from Nov. 4.
+
+Bijan Zanganeh said in an interview on state television that the Organization of the Petroleum Exporting Countries lacked the capacity to produce more oil to make up for the drop in Iranian sales.
+
+“If Trump wants to bring stability to the oil market, he should suspend sanctions on Tehran,” Zanganeh added.
+
+Oil prices have extended a [rally](https://www.oxfordlearnersdictionaries.com/definition/english/rally_1?q=rally) this year on expectations the sanctions on Iran will test OPEC’s ability to replace the shortfall, despite a June agreement among the group to pump more after pressure from Trump.
+
+Brent crude lost 37 cents to $84.61 per barrel by 1200 GMT on Tuesday after reaching a four-year high of $85.45 in the previous session.
+
+“China and Europe will be severely damaged by the U.S. sanctions against Iran,” Zanganeh said.
+
+China’s Sinopec Corp is halving loadings of crude oil from Iran this month, as the state refiner comes under intense pressure from Washington.
+
 - 0928 Pour la garniture
 
 - Breakingviews - Chinese [pharma](https://www.oxfordlearnersdictionaries.com/definition/english/pharma?q=pharma+) R&D mixes up a [potent](https://www.oxfordlearnersdictionaries.com/definition/english/potent?q=potent+) IPO formula
