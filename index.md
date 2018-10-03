@@ -112,7 +112,7 @@ Brent crude lost 37 cents to $84.61 per barrel by 1200 GMT on Tuesday after reac
 
 China’s Sinopec Corp is halving loadings of crude oil from Iran this month, as the state refiner comes under intense pressure from Washington.
 
-- A script is a series of commands that tells an application to perform a series of operations. You can use scripts in most Adobe applications to automate repetitive tasks, perform complex calculations, and even use some functionality not directly exposed through the graphical user interface. For example, you can direct After Effects to reorder the layers in a composition, find and replace source text in text layers, or send an email message when rendering is complete.
+- A script is a series of commands that tells an application to perform a series of operations. You can use scripts in most Adobe applications to automate [repetitive](https://www.oxfordlearnersdictionaries.com/definition/english/repetitive?q=repetitive) tasks, perform complex calculations, and even use some functionality not directly exposed through the graphical user interface. For example, you can direct After Effects to reorder the layers in a composition, find and replace source text in text layers, or send an email message when rendering is complete.
 
 - Hip Injuries and Disorders
 
@@ -248,39 +248,40 @@ A travel first aid kit may contain these items:
 
 [Adhesive](https://www.oxfordlearnersdictionaries.com/definition/english/adhesive_1?q=Adhesive) tape
 
-4" x 4" sterile gauze pads
+4" x 4" [sterile](https://www.oxfordlearnersdictionaries.com/definition/english/sterile?q=sterile) [gauze](https://www.oxfordlearnersdictionaries.com/definition/english/gauze?q=gauze) [pads](https://www.oxfordlearnersdictionaries.com/definition/english/pad_1#pad_1__11)
+_Three squared is written 32. 2 multiplied by 4 is/equals/makes 8 (= 2×4 = 8)._
 
-Antacid -- for indigestion
+[Antacid](https://www.oxfordlearnersdictionaries.com/definition/english/antacid?q=Antacid) -- for indigestion
 
-Antidiarrheal (Imodium, Pepto-Bismol, for example)
+[Antidiarrheal](https://www.oxfordlearnersdictionaries.com/definition/english/diarrhoea#diarrhoea__7) (Imodium, Pepto-Bismol, for example)
 
-Antihistamine cream
+[Antihistamine](https://www.oxfordlearnersdictionaries.com/definition/english/antihistamine?q=Antihistamine) cream
 
-Antiseptic agent (small bottle liquid soap) -- for cleaning wounds and hands
+[Antiseptic](https://www.oxfordlearnersdictionaries.com/definition/english/antiseptic_1?q=Antiseptic) agent (small bottle liquid soap) -- for cleaning wounds and hands
 
-Aspirin -- for mild pain, heart attack
+[Aspirin](https://www.oxfordlearnersdictionaries.com/definition/english/aspirin?q=Aspirin) -- for mild pain, heart attack
 
 Adhesive bandages (all sizes)
 
-Diphenhydramine (Benadryl) or loratadine (Claritin) -- oral antihistamine
+Diphenhydramine C17H21NO (Benadryl) or loratadine (Claritin) -- oral antihistamine
 
-Topical corticosteroids, such as over the counter Hydrocortisone 1% for rashes
+[Topical](https://www.oxfordlearnersdictionaries.com/definition/english/topical?q=Topical) corticosteroids, such as [over the counter](https://www.oxfordlearnersdictionaries.com/definition/english/counter_1?q=counter) [Hydrocortisone](https://www.oxfordlearnersdictionaries.com/definition/english/hydrocortisone?q=Hydrocortisone) 1% for [rashes](https://www.oxfordlearnersdictionaries.com/definition/english/rash_1#rash_1__11)
 
-Aloe vera topical gel or cream for burn relief
+[Aloe vera](https://www.oxfordlearnersdictionaries.com/definition/english/aloe-vera?q=Aloe+vera) topical gel or cream for burn relief
 
 Book on first aid
 
-Cigarette lighter -- to sterilize instruments and to be able to start a fire in the wilderness (to keep warm and to make smoke to signal for help, for examples)
+[Cigarette](https://www.oxfordlearnersdictionaries.com/definition/english/cigarette?q=Cigarette) lighter -- to [sterilize](https://www.oxfordlearnersdictionaries.com/definition/english/sterilize?q=sterilize) instruments and to be able to start a fire in the wilderness (to keep warm and to make smoke to signal for help, for examples)
 
 Cough medication
 
-Dental kit -- for broken teeth, loss of crown or filling
+Dental kit -- for broken teeth, loss of [crown](https://www.oxfordlearnersdictionaries.com/definition/english/crown_1?q=crown) or filling
 
 Exam gloves
 
 Small flashlight
 
-Ibuprofen (Advil is one brand name)
+[Ibuprofen](https://www.oxfordlearnersdictionaries.com/definition/english/ibuprofen?q=Ibuprofen) (Advil is one brand name)
 
 Insect repellant
 
