@@ -334,7 +334,7 @@ Several plug-ins come with After Effects and are automatically installed in the 
 
 When exchanging After Effects projects between computer systems, make sure that the plug-ins that the project depends on are installed on both systems. Similarly, if you're rendering a composition with multiple computers on a network, make sure that all plug-ins used in the composition are installed on all rendering computers.
 
-- 0928 Pour la garniture
+- 0928 Pour la [garniture](https://www.collinsdictionary.com/dictionary/french-english/garniture)
 
 - Breakingviews - Chinese [pharma](https://www.oxfordlearnersdictionaries.com/definition/english/pharma?q=pharma+) R&D mixes up a [potent](https://www.oxfordlearnersdictionaries.com/definition/english/potent?q=potent+) IPO formula
 
@@ -352,7 +352,7 @@ Vytjie Mentor did not tell the truth about her 2010 meeting with the Gupta famil
 
 Sneezing, sore throat, a stuffy nose, coughing - everyone knows the symptoms of the common cold. It is probably the most common illness. In the course of a year, people in the United States suffer 1 billion colds.
 
-You can get a cold by touching your eyes or nose after you touch surfaces with cold germs on them. You can also inhale the germs. Symptoms usually begin 2 or 3 days after infection and last 2 to 14 days. Washing your hands and staying away from people with colds will help you avoid colds.
+You can get a cold by touching your eyes or nose after you touch surfaces with cold [germs](https://www.oxfordlearnersdictionaries.com/definition/english/germ#germ__5) on them. You can also [inhale](https://www.oxfordlearnersdictionaries.com/definition/english/inhale?q=inhale) the germs. Symptoms usually begin 2 or 3 days after infection and last 2 to 14 days. Washing your hands and staying away from people with colds will help you avoid colds.
 
 There is no cure for the common cold. But there are treatments that can make you feel better while you wait for the cold to go away on its own:
 
@@ -360,7 +360,7 @@ Getting plenty of rest
 
 Drinking fluids
 
-Gargling with warm salt water
+[Gargling](https://www.oxfordlearnersdictionaries.com/definition/english/gargle_1#gargle_1__11) with warm salt water
 
 Using cough drops or throat sprays
 
