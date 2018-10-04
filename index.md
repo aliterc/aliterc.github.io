@@ -92,6 +92,79 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1004 Jair Bolsonaro: The candidate dividing friends in Brazil
+
+At this time of year, the gaúchos are out in force.
+
+Dressed in pantaloons and neckerchiefs and wearing wide-brimmed felt hats, the people of Rio Grande do Sul have just finished celebrating Semana Farroupilha (Ragamuffin week).
+
+It is an annual festival that marks a 19th-Century uprising when the region tried to separate from the rest of Brazil. Only it did not - the state of Rio Grande do Sul remained Brazilian.
+
+But it is still an excuse for a party. People here are proud of their heritage. In some ways, they have more in common with their gaucho-loving neighbours Uruguay and Argentina than they do with other parts of Brazil.
+
+And that makes for interesting politics in the conservative south.
+
+Rodeos and ragamuffins
+One of the big events at Ragamuffin week is the rodeo. Both men and women, all wearing their traditional wide-brimmed felt hats, mount their horses, lasso in hand, and prove their cowboy skills to the enthusiastic audience.
+
+A commentator speaks at breakneck speed. Every minute or so, a bull dashes across the field, closely followed by a rider casting their rope.
+
+Nineteen-year-old student Hewyllyn Carrao is sitting on the rodeo stand in her gaúcho felt hat.
+
+The event is a bit of light relief. With less than two weeks before the first round of presidential elections, politics is the topic of most conversations at the moment.
+
+"All you can do is laugh really!" she says of the candidates on offer this year. "I've no idea who to vote for. Nobody does anything for the people any more."
+
+Divisions among friends
+Brazil is certainly divided. Far-right candidate Jair Bolsonaro is expected to win the most votes in the first round on 7 October, followed by left-winger Fernando Haddad, who replaced former President Luiz Inácio Lula da Silva as the Workers' Party candidate.
+
+Jair Bolsonaro: Why Brazilian women are saying #NotHim
+Brazil's unlikely young conservatives
+On the other side of the rodeo field, a group of women are hosting a colonial tea. A massive rib of beef is on the BBQ.
+
+Claudia Matiello and Raquel Oliveira are friends, but when it comes to politics they do not see eye-to-eye.
+
+"I'm voting for Bolsonaro because I believe in change and he's going to revolutionise Brazil," says Claudia.
+
+Raquel shakes her head in despair. She is voting for Haddad because she thinks he is the only person who can get Brazil back on the right economic track.
+
+I ask her what she thinks about Claudia voting for Bolsonaro. "She'll see the consequences soon enough," she laughs.
+
+Fond memories of the military
+But across town in Brazil's oldest gun club, Bolsonaro would win hands-down. "The words 'order and progress' are written on the Brazilian flag," says owner Dempsey Magaldi.
+
+"But there's total disorder and chaos in this country - we've reached a limit. It's practically civil war." He says 80% of the club's new members start learning to shoot because of security concerns. People want to be able to defend themselves because they say the government is unable to protect them.
+
+Fellow marksman and gun shop-owner Henrique Nogueira agrees. In rural Rio Grande do Sul, he says he and his friends all want to vote for Jair Bolsonaro because he's the candidate who backs looser gun laws in response to rising violence.
+
+Henrique remembers the time when Brazil was under military rule from 1964 to 1985 fondly.
+
+It is a period in which hundreds of people were killed or disappeared, but Henrique says they were "years of progress, when laws were respected and there was more discipline". He thinks that when democracy was restored and the left took power "there was an inversion of values".
+
+"Police were seen as criminals, and the criminals the good guys. Now you're seeing the results," he says, referring to the record 63,880 homicides in Brazil last year.
+
+"The only option to turn this around is Bolsonaro."
+
+Ignoring the controversies
+Nicknamed "the legend" by his fans, Jair Bolsonaro has a cult following. They seem to forget - or ignore - the controversial things he has said. He told a congresswoman she was too ugly to be raped. He has also said that he would rather have a dead son than a gay son.
+
+But supporter Felipe Moreira Gil will not have a bad word said about Jair Bolsonaro - or the military. He is wearing a T-shirt with a picture of Carlos Alberto Brilhante Ustra on the front. The late army colonel was accused of ordering the illegal arrest and torture of 500 left-wing activists under military rule.
+
+"He's the biggest hero of the Brazilian people," he says. "He protected them from left-wing terrorists."
+
+Jair Bolsonaro has also talked fondly of military rule in the past.
+
+"It wouldn't be a bad idea," says Felipe of the idea of returning to a military-led government. "But it's not a possibility at the moment. Bolsonaro will become president so there's no reason to organise a counter-revolution."
+
+Radical change
+Regina Brunet, 21, is worried. She is out campaigning for Fernando Haddad in downtown Porto Alegre.
+
+"If people don't have jobs, streets get more insecure and Bolsonaro appeals to that feeling," she says. "He stands for a radical change, but it's not a change that would help people. It will only make it worse."
+
+Bolsonaro supporter Katia Rose Maciel Broca disagrees.
+
+"Trump's changing the US isn't he?" she says. "People are resistant to change because they're out of their comfort zone. Trump was also seen as controversial - he's doing a great job. Bolsonaro will do the same."
+
 - 1003 La cuisine thaï est [riche](https://www.collinsdictionary.com/dictionary/french-english/riche) d'influences indonésiennes, vietnamiennes, japonaises, chinoises ou [encore](https://www.collinsdictionary.com/dictionary/french-english/encore_1) indiennes. Elle [offre](https://www.collinsdictionary.com/dictionary/french-english/offre) [ainsi](https://www.collinsdictionary.com/dictionary/french-english/ainsi) une immense variété de [plats](https://www.collinsdictionary.com/dictionary/french-english/plat) [appréciés](https://www.collinsdictionary.com/dictionary/french-english/appr%C3%A9cier) dans le monde [entier](https://www.collinsdictionary.com/dictionary/french-english/entier). Le riz et la [noix](https://www.collinsdictionary.com/dictionary/french-english/noix) de coco sont des ingrédients [récurrents](https://www.collinsdictionary.com/dictionary/french-english/r%C3%A9current) dans la cuisine thaï tout comme les [plantes](https://www.collinsdictionary.com/dictionary/french-english/plante) aromatiques, les condiments et les épices, ce qui en fait une cuisine particulièrement [parfumée](https://www.collinsdictionary.com/dictionary/french-english/parfumer), [voire](https://www.collinsdictionary.com/dictionary/french-english/voire) [parfois](https://www.collinsdictionary.com/dictionary/french-english/parfois) explosive par l'utilisation intense du [piment](https://www.collinsdictionary.com/dictionary/french-english/piment).
 
 [mercredi](https://www.collinsdictionary.com/dictionary/french-english/mercredi) [octobre](https://www.collinsdictionary.com/dictionary/french-english/octobre)
