@@ -105,6 +105,7 @@ But it is still an excuse for a party. People here are proud of their heritage. 
 And that makes for interesting politics in the conservative south.
 
 Rodeos and ragamuffins
+
 One of the big events at Ragamuffin week is the rodeo. Both men and women, all wearing their traditional wide-brimmed felt hats, mount their horses, [lasso](https://www.oxfordlearnersdictionaries.com/definition/english/lasso_1?q=lasso) in hand, and prove their cowboy skills to the enthusiastic audience.
 
 A commentator speaks at breakneck speed. Every minute or so, a bull dashes across the field, closely followed by a rider casting their rope.
@@ -165,6 +166,10 @@ Regina Brunet, 21, is worried. She is out campaigning for Fernando Haddad in dow
 Bolsonaro supporter Katia Rose Maciel Broca disagrees.
 
 "Trump's changing the US isn't he?" she says. "People are resistant to change because they're out of their comfort zone. Trump was also seen as controversial - he's doing a great job. Bolsonaro will do the same."
+
+- With the easy to use UV Master plug-in, you can quickly generate UV maps inside ZBrush in a few short steps. Take full advantage of a dynamic toolset, allowing you to control placement of seems by attracting and protecting various regions of your models based on polypainting information. ZBrush will optimize your speed, and efficiency, while making the UV process simple and quick.
+
+http://pixologic.com/zclassroom/lesson/saving-uv-maps
 
 - 1003 La cuisine thaï est [riche](https://www.collinsdictionary.com/dictionary/french-english/riche) d'influences indonésiennes, vietnamiennes, japonaises, chinoises ou [encore](https://www.collinsdictionary.com/dictionary/french-english/encore_1) indiennes. Elle [offre](https://www.collinsdictionary.com/dictionary/french-english/offre) [ainsi](https://www.collinsdictionary.com/dictionary/french-english/ainsi) une immense variété de [plats](https://www.collinsdictionary.com/dictionary/french-english/plat) [appréciés](https://www.collinsdictionary.com/dictionary/french-english/appr%C3%A9cier) dans le monde [entier](https://www.collinsdictionary.com/dictionary/french-english/entier). Le riz et la [noix](https://www.collinsdictionary.com/dictionary/french-english/noix) de coco sont des ingrédients [récurrents](https://www.collinsdictionary.com/dictionary/french-english/r%C3%A9current) dans la cuisine thaï tout comme les [plantes](https://www.collinsdictionary.com/dictionary/french-english/plante) aromatiques, les condiments et les épices, ce qui en fait une cuisine particulièrement [parfumée](https://www.collinsdictionary.com/dictionary/french-english/parfumer), [voire](https://www.collinsdictionary.com/dictionary/french-english/voire) [parfois](https://www.collinsdictionary.com/dictionary/french-english/parfois) explosive par l'utilisation intense du [piment](https://www.collinsdictionary.com/dictionary/french-english/piment).
 
