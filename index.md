@@ -175,6 +175,12 @@ http://pixologic.com/zclassroom/lesson/saving-uv-maps
 
 The most familiar symptom of a tooth problem is a toothache. Others include worn-down or loose teeth. It's important that you see a dentist if you have any problems with your teeth. Fortunately, you can prevent many tooth disorders by taking care of your teeth and keeping them clean.
 
+DIAGNOSIS
+Your pain may be from a CAVITY.
+
+SELF CARE
+Make an appointment to see your dentist. Proper brushing and flossing along with fluoride rinses and coatings, as suggested by your dentist, may prevent tooth decay.
+
 - 1003 La cuisine thaï est [riche](https://www.collinsdictionary.com/dictionary/french-english/riche) d'influences indonésiennes, vietnamiennes, japonaises, chinoises ou [encore](https://www.collinsdictionary.com/dictionary/french-english/encore_1) indiennes. Elle [offre](https://www.collinsdictionary.com/dictionary/french-english/offre) [ainsi](https://www.collinsdictionary.com/dictionary/french-english/ainsi) une immense variété de [plats](https://www.collinsdictionary.com/dictionary/french-english/plat) [appréciés](https://www.collinsdictionary.com/dictionary/french-english/appr%C3%A9cier) dans le monde [entier](https://www.collinsdictionary.com/dictionary/french-english/entier). Le riz et la [noix](https://www.collinsdictionary.com/dictionary/french-english/noix) de coco sont des ingrédients [récurrents](https://www.collinsdictionary.com/dictionary/french-english/r%C3%A9current) dans la cuisine thaï tout comme les [plantes](https://www.collinsdictionary.com/dictionary/french-english/plante) aromatiques, les condiments et les épices, ce qui en fait une cuisine particulièrement [parfumée](https://www.collinsdictionary.com/dictionary/french-english/parfumer), [voire](https://www.collinsdictionary.com/dictionary/french-english/voire) [parfois](https://www.collinsdictionary.com/dictionary/french-english/parfois) explosive par l'utilisation intense du [piment](https://www.collinsdictionary.com/dictionary/french-english/piment).
 
 [mercredi](https://www.collinsdictionary.com/dictionary/french-english/mercredi) [octobre](https://www.collinsdictionary.com/dictionary/french-english/octobre)
