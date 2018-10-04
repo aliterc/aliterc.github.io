@@ -92,7 +92,11 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1004 Jair Bolsonaro: The candidate dividing friends in Brazil
+- 1004 CBF 1:35-2:01
+
+[at the tourist office](https://radiolingua.com/2008/09/lesson-35-coffee-break-french/)/[1:36](https://radiolingua.com/2008/09/lesson-36-coffee-break-french/)/ [travellinig by public tranport](https://radiolingua.com/2008/09/lesson-37-coffee-break-french/)/ [seeking help at the pharmacy](https://radiolingua.com/2008/09/lesson-38-coffee-break-french/)/ [langauge review in a party setting](https://radiolingua.com/2008/10/lesson-39-coffee-break-french/)/ [linguistic diversity in France](https://radiolingua.com/2008/10/lesson-40-coffee-break-french/)/ [the present tense](https://radiolingua.com/2009/01/lesson-41-coffee-break-french/)
+
+Jair Bolsonaro: The candidate dividing friends in Brazil
 
 At this time of year, the gaúchos are out in force.
 
