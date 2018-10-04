@@ -96,16 +96,16 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 At this time of year, the gaúchos are out in force.
 
-Dressed in pantaloons and neckerchiefs and wearing wide-brimmed felt hats, the people of Rio Grande do Sul have just finished celebrating Semana Farroupilha (Ragamuffin week).
+Dressed in [pantaloons](https://www.oxfordlearnersdictionaries.com/definition/english/pantaloons?q=pantaloons) and neckerchiefs and wearing wide-[brimmed](https://www.oxfordlearnersdictionaries.com/definition/english/brim_1#brim_1__11) felt hats, the people of Rio Grande do Sul have just finished celebrating Semana Farroupilha (Ragamuffin week).
 
 It is an annual festival that marks a 19th-Century uprising when the region tried to separate from the rest of Brazil. Only it did not - the state of Rio Grande do Sul remained Brazilian.
 
-But it is still an excuse for a party. People here are proud of their heritage. In some ways, they have more in common with their gaucho-loving neighbours Uruguay and Argentina than they do with other parts of Brazil.
+But it is still an excuse for a party. People here are proud of their heritage. In some ways, they have more in common with their [gaucho](https://www.oxfordlearnersdictionaries.com/definition/english/gaucho?q=gaucho)-loving neighbours Uruguay and Argentina than they do with other parts of Brazil.
 
 And that makes for interesting politics in the conservative south.
 
 Rodeos and ragamuffins
-One of the big events at Ragamuffin week is the rodeo. Both men and women, all wearing their traditional wide-brimmed felt hats, mount their horses, lasso in hand, and prove their cowboy skills to the enthusiastic audience.
+One of the big events at Ragamuffin week is the rodeo. Both men and women, all wearing their traditional wide-brimmed felt hats, mount their horses, [lasso](https://www.oxfordlearnersdictionaries.com/definition/english/lasso_1?q=lasso) in hand, and prove their cowboy skills to the enthusiastic audience.
 
 A commentator speaks at breakneck speed. Every minute or so, a bull dashes across the field, closely followed by a rider casting their rope.
 
@@ -118,8 +118,6 @@ The event is a bit of light relief. With less than two weeks before the first ro
 Divisions among friends
 Brazil is certainly divided. Far-right candidate Jair Bolsonaro is expected to win the most votes in the first round on 7 October, followed by left-winger Fernando Haddad, who replaced former President Luiz Inácio Lula da Silva as the Workers' Party candidate.
 
-Jair Bolsonaro: Why Brazilian women are saying #NotHim
-Brazil's unlikely young conservatives
 On the other side of the rodeo field, a group of women are hosting a colonial tea. A massive rib of beef is on the BBQ.
 
 Claudia Matiello and Raquel Oliveira are friends, but when it comes to politics they do not see eye-to-eye.
@@ -131,6 +129,7 @@ Raquel shakes her head in despair. She is voting for Haddad because she thinks h
 I ask her what she thinks about Claudia voting for Bolsonaro. "She'll see the consequences soon enough," she laughs.
 
 Fond memories of the military
+
 But across town in Brazil's oldest gun club, Bolsonaro would win hands-down. "The words 'order and progress' are written on the Brazilian flag," says owner Dempsey Magaldi.
 
 "But there's total disorder and chaos in this country - we've reached a limit. It's practically civil war." He says 80% of the club's new members start learning to shoot because of security concerns. People want to be able to defend themselves because they say the government is unable to protect them.
@@ -141,11 +140,12 @@ Henrique remembers the time when Brazil was under military rule from 1964 to 198
 
 It is a period in which hundreds of people were killed or disappeared, but Henrique says they were "years of progress, when laws were respected and there was more discipline". He thinks that when democracy was restored and the left took power "there was an inversion of values".
 
-"Police were seen as criminals, and the criminals the good guys. Now you're seeing the results," he says, referring to the record 63,880 homicides in Brazil last year.
+"Police were seen as criminals, and the criminals the good guys. Now you're seeing the results," he says, referring to the record 63,880 [homicides](https://www.oxfordlearnersdictionaries.com/definition/english/homicide#homicide__4) in Brazil last year.
 
 "The only option to turn this around is Bolsonaro."
 
 Ignoring the controversies
+
 Nicknamed "the legend" by his fans, Jair Bolsonaro has a cult following. They seem to forget - or ignore - the controversial things he has said. He told a congresswoman she was too ugly to be raped. He has also said that he would rather have a dead son than a gay son.
 
 But supporter Felipe Moreira Gil will not have a bad word said about Jair Bolsonaro - or the military. He is wearing a T-shirt with a picture of Carlos Alberto Brilhante Ustra on the front. The late army colonel was accused of ordering the illegal arrest and torture of 500 left-wing activists under military rule.
@@ -157,6 +157,7 @@ Jair Bolsonaro has also talked fondly of military rule in the past.
 "It wouldn't be a bad idea," says Felipe of the idea of returning to a military-led government. "But it's not a possibility at the moment. Bolsonaro will become president so there's no reason to organise a counter-revolution."
 
 Radical change
+
 Regina Brunet, 21, is worried. She is out campaigning for Fernando Haddad in downtown Porto Alegre.
 
 "If people don't have jobs, streets get more insecure and Bolsonaro appeals to that feeling," she says. "He stands for a radical change, but it's not a change that would help people. It will only make it worse."
