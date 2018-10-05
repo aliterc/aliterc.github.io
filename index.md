@@ -92,6 +92,20 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+-1005 **'Beluga whale' spotted in River Thames near London**
+
+LONDON (Reuters) - A [beluga](https://www.oxfordlearnersdictionaries.com/definition/english/beluga?q=beluga) whale was spotted on Tuesday near [barges](https://www.oxfordlearnersdictionaries.com/definition/english/barge_1#barge_1__12) in the River Thames near London, hundreds of miles from its normal Arctic habitat, naturalists said.
+
+“Can’t believe I’m writing this, no joke - BELUGA in the Thames off Coalhouse Fort,” [ecologist](https://www.oxfordlearnersdictionaries.com/definition/english/ecologist?q=ecologist) Dave Andrews wrote.
+
+Video footage showed the white mammal surfacing in the Thames near Gravesend, Kent.
+
+“This is the most [southerly](https://www.oxfordlearnersdictionaries.com/definition/english/southerly_1?q=southerly) sighting of a beluga we have ever seen around these shores,” Lucy Babey, head of science and [conservation](https://www.oxfordlearnersdictionaries.com/definition/english/conservation?q=conservation) at the ORCA charity, was quoted as saying by The Mirror newspaper.
+
+The last sighting in UK waters was in 2015 when they were spotted off northeastern England near the Northumberland coastline, but they left shortly afterwards, she added.
+
+In 2006, a northern bottle-nosed whale died after [stranding](https://www.oxfordlearnersdictionaries.com/definition/english/strand_2) itself in the Thames.
+
 - 1004 CBF 1:35-2:01
 
 [at the tourist office](https://radiolingua.com/2008/09/lesson-35-coffee-break-french/)/[1:36](https://radiolingua.com/2008/09/lesson-36-coffee-break-french/)/ [travellinig by public tranport](https://radiolingua.com/2008/09/lesson-37-coffee-break-french/)/ [seeking help at the pharmacy](https://radiolingua.com/2008/09/lesson-38-coffee-break-french/)/ [langauge review in a party setting](https://radiolingua.com/2008/10/lesson-39-coffee-break-french/)/ [linguistic diversity in France](https://radiolingua.com/2008/10/lesson-40-coffee-break-french/)/ [the present tense](https://radiolingua.com/2009/01/lesson-41-coffee-break-french/)
