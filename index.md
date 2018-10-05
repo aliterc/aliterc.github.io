@@ -110,13 +110,13 @@ In 2006, a northern bottle-nosed whale died after [stranding](https://www.oxford
 
 When the US went to bat for Big Pharma in the fight against this killer disease, South Africa wasn’t having any of it. Here’s what happened next.
 
-Graveyard cough, white plague, consumption. A killer by any name, TB has stalked the human race for aeons, lurking in crowded tenements or following miners deep underground, hanging in the air of our hospitals.
+Graveyard cough, white [plague](https://www.oxfordlearnersdictionaries.com/definition/english/plague_1?q=plague), consumption. A killer by any name, TB has [stalked](https://www.oxfordlearnersdictionaries.com/definition/english/stalk_2) the human race for [aeons](https://www.oxfordlearnersdictionaries.com/definition/english/aeon#aeon__4), [lurking](https://www.oxfordlearnersdictionaries.com/definition/english/lurk_1#lurk_1__11) in crowded [tenements](https://www.oxfordlearnersdictionaries.com/definition/english/tenement#tenement__4) or following miners deep underground, hanging in the air of our hospitals._These hills have been worn down over aeons of geological time._
 
-Always there, yet rarely spoken.
+Always there, yet [rarely](https://www.oxfordlearnersdictionaries.com/definition/english/rarely?q=rarely) spoken.
 
-Today, it kills more people than HIV and malaria combined, the World Health Organisation (WHO) reports. In South Africa, Statistics South Africa’s latest data shows TB remains the leading cause of non-violent deaths.
+Today, it kills more people than HIV and [malaria](https://www.oxfordlearnersdictionaries.com/definition/english/malaria?q=malaria) combined, the World Health Organisation (WHO) reports. In South Africa, Statistics South Africa’s latest data shows TB remains the leading cause of non-violent deaths.
 
-Yet it took the United Nations 73 years to call a meeting on TB — and only because a very excitable South African health minister agitated enough for it.
+Yet it took the United Nations 73 years to call a meeting on TB — and only because a very [excitable](https://www.oxfordlearnersdictionaries.com/definition/english/excitable?q=excitable) South African health minister [agitated](https://www.oxfordlearnersdictionaries.com/definition/english/agitated?q=agitated) enough for it.
 
 On Wednesday heads of state ratified the first UN declaration on the most deadly infectious disease on Earth. In doing so, the world committed to curing 40-million people of TB by 2022. To fulfil their promises, international leaders must also ensure that almost an equal number of people get treatment to prevent them from developing TB.
 
