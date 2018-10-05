@@ -116,7 +116,7 @@ Always there, yet [rarely](https://www.oxfordlearnersdictionaries.com/definition
 
 Today, it kills more people than HIV and [malaria](https://www.oxfordlearnersdictionaries.com/definition/english/malaria?q=malaria) combined, the World Health Organisation (WHO) reports. In South Africa, Statistics South Africa’s latest data shows TB remains the leading cause of non-violent deaths.
 
-Yet it took the United Nations 73 years to call a meeting on TB — and only because a very [excitable](https://www.oxfordlearnersdictionaries.com/definition/english/excitable?q=excitable) South African health minister [agitated](https://www.oxfordlearnersdictionaries.com/definition/english/agitated?q=agitated) enough for it.
+Yet it took the United Nations 73 years to call a meeting on TB — and only because a very [excitable](https://www.oxfordlearnersdictionaries.com/definition/english/excitable?q=excitable) South African health minister [agitated](https://www.oxfordlearnersdictionaries.com/definition/english/agitated?q=agitated) enough for it. [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/Eb1005-2.m4a)
 
 On Wednesday heads of state ratified the first UN declaration on the most deadly infectious disease on Earth. In doing so, the world committed to curing 40-million people of TB by 2022. To fulfil their promises, international leaders must also ensure that almost an equal number of people get treatment to prevent them from developing TB.
 
