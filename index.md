@@ -104,7 +104,7 @@ Video footage showed the white mammal surfacing in the Thames near Gravesend, Ke
 
 The last sighting in UK waters was in 2015 when they were spotted off northeastern England near the Northumberland coastline, but they left shortly afterwards, she added.
 
-In 2006, a northern bottle-nosed whale died after [stranding](https://www.oxfordlearnersdictionaries.com/definition/english/strand_2) itself in the Thames.
+In 2006, a northern bottle-nosed whale died after [stranding](https://www.oxfordlearnersdictionaries.com/definition/english/strand_2) itself in the Thames. [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/Eb1005.m4a)
 
 - 1004 CBF 1:35-2:01
 
