@@ -96,7 +96,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 Update 5-23-2018 This is sort of like having multiple work area settings for a comp. To use it, you must create guide layers whose inpoints and outpoints serve as render sections. Each "render layer" layer-name NOT beginning with an underscore ("_") will be used as that render item's output base name (e.g., "basename".mov, or "basename"_[#####].xxx if it is a file sequence). Layer names beginning WITH an underscore will be ignored, and the comp name will be used as the basename of the render queue item (AE's normal "add to render queue" behavior). Select the render layers you want to use, run the script, and it adds the items to the render queue. Now with a UI and best as a docked panel. See this graphic.
 
-![img](http://www.crgreen.com/aescripts/queuecompsecn/image.html)
+![image](http://www.crgreen.com/aescripts/queuecompsecn/queueCompSections.png)
 
 - 1005 **'Beluga whale' spotted in River Thames near London**
 
