@@ -104,14 +104,14 @@ version 2.0
 (.3 changes the script considerably: Now, layers are no longer required to have "render"
 at the start of the layer name, and in fact the layer name, not the first marker comment, is used for the basename.
 This is more efficient since, to put a fine point on it,
-the automating of marker comments does not exist -- for example renaming, duplicating -- whereas layer name automation does exist)
+the automating of marker comments does not exist -- for example renaming, duplicating -- [whereas](https://www.oxfordlearnersdictionaries.com/definition/english/whereas?q=whereas) layer name automation does exist)
 2.0 adds an interface, with the option of turning the guide layers into non-guide layers after adding the render queue. v2.0 really is meant 
 to be a docked panel.
 
 By the guy who runs crgreen.com
 
 This is like having multiple Work Area settings for a comp.
-You must create Guide Layers to use as "faux work area markers".
+You must create Guide Layers to use as "[faux](https://www.oxfordlearnersdictionaries.com/definition/english/faux?q=faux) work area markers".
 Then you set the ins and outs of these layers to act as separate render starts and ends.
 Then you select at least one of those layers and run the script, which will
 read each selected layer's in point and out point and use those to add a new render queue item.
@@ -126,7 +126,7 @@ function buildQCSUI(this_obj_) {
     : new Window('palette', ('Queue Comp Sections, v' + verzh),[169,173,524,373]);
     labelText = '(v.' + verzh + ') Select layers that are "Guide Layers" and the ins and outs for those layers will be used for new Render Queue items.' +
     ' Layer names will be used for file names (or sequence base names); Put an underscore ("_") at the head of the layer name if you\'d ' + 
-    'rather use the comp name (which will be automatically appended with numbers by AE).';
+    'rather use the comp name (which will be automatically [appended](https://www.oxfordlearnersdictionaries.com/definition/english/append#append__4) with numbers by AE).';
     QCSwin.xui_ui_checkbox1 = QCSwin.add('checkbox', [25,12,347,36], '"Un-Guide" selected "Guide Layers" when done');
     QCSwin.xui_ui_checkbox1.value = false;
     QCSwin.xui_ui_label4 = QCSwin.add('statictext', [8,100,342,189], labelText, {multiline:true});
