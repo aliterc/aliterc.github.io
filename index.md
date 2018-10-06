@@ -94,6 +94,191 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 1006 Queue_Comp_Sections.jsx
 
+```markdown
+/*
+Queue_Comp_Sections.jsx
+
+version 2.0
+
+(.2 adds auto-numbering of duplicate names)
+(.3 changes the script considerably: Now, layers are no longer required to have "render"
+at the start of the layer name, and in fact the layer name, not the first marker comment, is used for the basename.
+This is more efficient since, to put a fine point on it,
+the automating of marker comments does not exist -- for example renaming, duplicating -- whereas layer name automation does exist)
+2.0 adds an interface, with the option of turning the guide layers into non-guide layers after adding the render queue. v2.0 really is meant 
+to be a docked panel.
+
+By the guy who runs crgreen.com
+
+This is like having multiple Work Area settings for a comp.
+You must create Guide Layers to use as "faux work area markers".
+Then you set the ins and outs of these layers to act as separate render starts and ends.
+Then you select at least one of those layers and run the script, which will
+read each selected layer's in point and out point and use those to add a new render queue item.
+Also, if you DO NOT have an underscore ("_") at the beginning of the layer name of a "render layer", the layer name will
+be used as the new queue item's output base name (e.g., "basename".mov, or "basename"_[#####].xxx if it is a file sequence).
+If there IS an underscore at the beginning of the layer name, the comp name will be used for the queued item (the default behavior).
+*/
+var verzh = "2.0";
+function buildQCSUI(this_obj_) {
+    var QCSwin = (this_obj_ instanceof Panel)
+    ? this_obj_
+    : new Window('palette', ('Queue Comp Sections, v' + verzh),[169,173,524,373]);
+    labelText = '(v.' + verzh + ') Select layers that are "Guide Layers" and the ins and outs for those layers will be used for new Render Queue items.' +
+    ' Layer names will be used for file names (or sequence base names); Put an underscore ("_") at the head of the layer name if you\'d ' + 
+    'rather use the comp name (which will be automatically appended with numbers by AE).';
+    QCSwin.xui_ui_checkbox1 = QCSwin.add('checkbox', [25,12,347,36], '"Un-Guide" selected "Guide Layers" when done');
+    QCSwin.xui_ui_checkbox1.value = false;
+    QCSwin.xui_ui_label4 = QCSwin.add('statictext', [8,100,342,189], labelText, {multiline:true});
+    QCSwin.xui_ui_label4.justify = 'left';
+    QCSwin.xui_ui_button5 = QCSwin.add('button', [75,48,273,78], 'Add to Render Queue');
+    QCSwin.xui_ui_infoLbl = QCSwin.add('statictext', [273+22,48+11,273+22+38,78+11], '\u24d8 \u2b07');
+    
+    QCSwin.xui_ui_button5.onClick = function () {doMain(QCSwin);if (qcsw.toString() != "[object Panel]") {this.parent.close(1);}}
+    
+    return QCSwin
+}
+var qcsw = buildQCSUI(this);
+if (qcsw.toString() == "[object Panel]") {
+    qcsw;
+} else {
+    qcsw.show();
+}
+
+function doMain(uiWin) {
+    
+    var mainErr = "For this script to work, you need to have selected "
+    + "Guide Layers whose layer names will be used for the basenames of the render files' names. "
+    + "(To use the comp name, put an underscore at the beginning of the layer name.)";
+    var activeItem = app.project.activeItem;
+    var nogoFlag = false;
+
+    var turnOffGuides = uiWin.xui_ui_checkbox1.value;
+    
+    if (activeItem == null || !(activeItem instanceof CompItem)){
+        alert(mainErr);
+    } else {
+        var s = activeItem.selectedLayers;
+        var selNum = s.length;
+        if (selNum == 0) {
+            alert(mainErr);
+        } else {
+            /////FIRST, LOOP TO CHECK IF all are guide layers
+            for (var x = 0; x <= (selNum-1); x++) {
+                if ( s[x].guideLayer != true ) {
+                    nogoFlag = true;
+                    break;
+                };
+            }
+            
+            ///////////////////////
+            //loop for each RL
+            origWAS = activeItem.workAreaStart;
+            origWAD = activeItem.workAreaDuration;
+            
+            if (nogoFlag) {
+                alert(mainErr);
+            } else {
+                app.beginUndoGroup("Queue Comp Sections");
+                var uniqueNamesArray = new Array();
+                
+                for (var n = 0; n <= (selNum-1); n++) {
+                    la = s[n];
+                    if (la.name.indexOf("_") != 0) {
+                        // if there is not underscore at beginning
+                        baseName = la.name;
+                    } else {
+                        // otherwise we just use default queue action
+                        baseName = activeItem.name;
+                    }
+                    ;// get in and out, temporarily set workarea start and end, queue comp for these settings
+                    renderIn = la.inPoint;
+                    renderOut = la.outPoint;
+                    thisRQItem = app.project.renderQueue.items.add(activeItem);
+                    
+                    curOM = thisRQItem.outputModule(1);
+                    
+                    fileOut = curOM.file;
+                    fileOutStr = curOM.file.toString();
+                    fileOutStrLen = fileOutStr.length;
+                    
+                    fileOutNameStr = fileOut.name.toString();
+                    nameLen = fileOutNameStr.length;
+                    
+                    foEnd = fileOutNameStr.slice((nameLen - 4), nameLen);
+                    foHead  = fileOutStr.slice(0, (fileOutStrLen - nameLen));
+                    
+                    // use function to see if it's a file sequence
+                    itsASeq = testForSequence(fileOutNameStr);
+                    
+                    thisRQItem.timeSpanStart = renderIn;
+                    thisRQItem.timeSpanDuration = (renderOut - renderIn);
+                    
+                    pathMid = "";
+                    if (itsASeq) {pathMid = "_%5B#####%5D";}
+                    
+                    uName = buildUniqueName(uniqueNamesArray, baseName);
+                    if (uName != baseName) {
+                        baseName = uName;
+                        uniqueNamesArray[uniqueNamesArray.length] = baseName;
+                    } else {
+                        uniqueNamesArray[uniqueNamesArray.length] = uName;
+                    }
+                    
+                    curOM.file = new File(foHead + baseName + pathMid + foEnd);
+                }
+                
+                if (turnOffGuides) {
+                for (var n = 0; n <= (selNum-1); n++) {
+                 la = s[n];
+                 la.guideLayer = false;
+                }
+                }
+                // reset work area to original settings
+                activeItem.workAreaStart = origWAS;
+                activeItem.workAreaDuration = origWAD;
+                
+                app.endUndoGroup();
+            }
+        }
+    }
+}//do main
+
+function buildUniqueName(ar, newItem){
+    // though not ideal because it is not smart enough to parse number-ended strings,
+    // this is good enough -- so if the same basename is given more than once (by
+    // marker comment or by defaulting to comp name), this will form number-endings fine.
+    // basenames given with "_number" will have add'l "_number"s added to them.
+    bestItem = newItem;
+    endNum = 1;
+    wasArray = (ar.join("\r") + "\r");
+    while ( wasArray.indexOf( (bestItem + "\r") ) != -1 ) {
+        bestItem = newItem;
+        bestItem = (newItem + "_" + endNum.toString());
+        endNum++;
+    }
+    return bestItem;
+}
+
+function testForSequence(fileOutEndString){
+    //  regular expressions:
+    //  looks for various movie file extensions, beginning with '.'
+    var movieREx = new RegExp (/[:.:]mov|MOV|avi|AVI|mpg|MPG|wmv|WMV$/);
+    
+    //  looks for [(#, ... )]-type afx numbering scheme in file name ( where (#, ... ) is any number of #s between [ and ] )
+    //  (URL equivalents of [ and ] are used)
+    var seqREx = new RegExp (/%5B#+%5D/);
+    
+    var returnedBoolean = movieREx.exec(fileOutEndString);
+    if (returnedBoolean == null) {returnedBoolean = true;}
+    
+    var returnedBoolean = seqREx.exec(fileOutEndString);
+    if (returnedBoolean == null) {returnedBoolean = false;}
+    
+    return returnedBoolean;
+}
+```
+
 Update 5-23-2018 This is sort of like having multiple work area settings for a comp. To use it, you must create guide layers whose inpoints and outpoints serve as render sections. Each "render layer" layer-name NOT beginning with an underscore ("_") will be used as that render item's output base name (e.g., "basename".mov, or "basename"_[#####].xxx if it is a file sequence). Layer names beginning WITH an underscore will be ignored, and the comp name will be used as the basename of the render queue item (AE's normal "add to render queue" behavior). Select the render layers you want to use, run the script, and it adds the items to the render queue. Now with a UI and best as a docked panel. See this graphic.
 
 ![image](http://www.crgreen.com/aescripts/queuecompsecn/queueCompSections.png)
