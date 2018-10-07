@@ -92,6 +92,12 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1007 
+
+Dans un wok _[faire](https://www.collinsdictionary.com/dictionary/french-english/faire) [revenir](https://www.collinsdictionary.com/dictionary/french-english/revenir)_ l'[oignon](https://www.collinsdictionary.com/dictionary/french-english/oignon) et l'[ail](https://www.collinsdictionary.com/dictionary/french-english/ail). [Quand](https://www.collinsdictionary.com/dictionary/french-english/quand) [ils](https://www.collinsdictionary.com/dictionary/french-english/ils) sont [légèrement](https://www.collinsdictionary.com/dictionary/french-english/l%C3%A9g%C3%A8rement) [dorés](https://www.collinsdictionary.com/dictionary/french-english/dorer) [ajouter](https://www.collinsdictionary.com/dictionary/french-english/ajouter) la [viande](https://www.collinsdictionary.com/dictionary/french-english/viande).
+
+Attention la viande ne doit pas être trop cuite. Il s'agit de fines lamelles de boeuf et quelques minutes au wok suffisent.
+
 - 1006 Queue_Comp_Sections.jsx
 
 ```markdown
