@@ -96,7 +96,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 Dans un wok _[faire](https://www.collinsdictionary.com/dictionary/french-english/faire) [revenir](https://www.collinsdictionary.com/dictionary/french-english/revenir)_ l'[oignon](https://www.collinsdictionary.com/dictionary/french-english/oignon) et l'[ail](https://www.collinsdictionary.com/dictionary/french-english/ail). [Quand](https://www.collinsdictionary.com/dictionary/french-english/quand) [ils](https://www.collinsdictionary.com/dictionary/french-english/ils) sont [légèrement](https://www.collinsdictionary.com/dictionary/french-english/l%C3%A9g%C3%A8rement) [dorés](https://www.collinsdictionary.com/dictionary/french-english/dorer) [ajouter](https://www.collinsdictionary.com/dictionary/french-english/ajouter) la [viande](https://www.collinsdictionary.com/dictionary/french-english/viande).
 
-Attention la viande ne doit pas être trop cuite. Il s'agit de fines lamelles de boeuf et quelques minutes au wok suffisent.
+[Attention](https://www.collinsdictionary.com/dictionary/french-english/attention_1) la viande ne [doit](https://www.collinsdictionary.com/dictionary/french-english/doit) pas [être](https://www.collinsdictionary.com/dictionary/french-english/%C3%AAtre) [trop](https://www.collinsdictionary.com/dictionary/french-english/trop) [cuite](https://www.collinsdictionary.com/dictionary/french-english/cuite). Il s'agit de fines [lamelles](https://www.collinsdictionary.com/dictionary/french-english/lamelle) de boeuf et [quelques](https://www.collinsdictionary.com/dictionary/french-english/quelque) minutes au wok [suffisent](https://www.collinsdictionary.com/dictionary/french-english/suffisent).
 
 - 1006 Queue_Comp_Sections.jsx
 
