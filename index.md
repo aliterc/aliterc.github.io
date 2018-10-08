@@ -92,6 +92,8 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1008 https://sites.google.com/view/portfolio--when-they-click-in/home
+
 - 1007 
 
 Dans un wok _[faire](https://www.collinsdictionary.com/dictionary/french-english/faire) [revenir](https://www.collinsdictionary.com/dictionary/french-english/revenir)_ l'[oignon](https://www.collinsdictionary.com/dictionary/french-english/oignon) et l'[ail](https://www.collinsdictionary.com/dictionary/french-english/ail). [AUDIO GUIDE](https://github.com/aliterc/aliterc.github.io/blob/master/Fb1007-1.m4a)
