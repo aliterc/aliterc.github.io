@@ -94,7 +94,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 1008 https://sites.google.com/view/portfolio--when-they-click-in/home
 
-South Cameroon a ‘big ghost town’
+South Cameroon /kæməˈruːn/  a ‘big ghost town’
 
 Tens of thousands of English-speaking Cameroonians have fled the country ahead of the presidential vote
 
@@ -102,9 +102,10 @@ Ogoja — On October 7, Cameroonians will vote for their president after a long 
 
 In the north, the army is fighting Boko Haram militants, which is characterised by human rights violations on both sides.
 
-And in the southwest, a civil war against English-speaking secessionists who are demanding independence for Anglophone Cameroon — a region that has long been marginalised by the predominantly Francophone government.
+And in the southwest, a civil war against English-speaking [secessionists](https://www.oxfordlearnersdictionaries.com/definition/english/secessionist_2#secessionist_2__4) who are demanding independence for Anglophone Cameroon — a region that has long been marginalised by the predominantly Francophone government.
 
 The secessionists view the election as illegitimate. 
+
 They have told their supporters not to vote and have pledged to attack polling stations.
 
 Matthew (19) will not be voting. He asked that his full name and location not be disclosed. He’s speaking from somewhere on the Nigerian side of the Nigeria-Cameroon border, in a camp with thousands of other refugees, none of whom will be able to cast their ballot.
@@ -116,6 +117,7 @@ Matthew speaks in a voice that sounds far older than he is. His face has grown l
 He intends to go back across the border, to rejoin his fellow freedom fighters. This could be the last time he sees his mother.
 
 Republic of Ambazonia
+
 Matthew is one of hundreds of armed militants who have fought the Cameroonian army in waves of violence that have left at least 400 dead, according to Amnesty International. The Cameroonian government calls them terrorists.
 
 Although the armed groups are fractured, and don’t share identical aims, most are fighting for independence for southwest Cameroon — for a new republic to be called Ambazonia, after Ambas Bay, a missionary settlement for freed slaves established in 1858.
@@ -137,6 +139,7 @@ The rebels have also been implicated in human rights violations. They’ve attac
 There is a mismatch in capacity between the opposing armies: the rebels use hunting rifles and charms to fight the government’s United States- and French-trained forces.
 
 ‘Elections will not hold’
+
 On a recent Thursday afternoon, Prisca Otim arrived at a refugee settlement, funded by the United Nations Refugee Agency (UNHCR), in Ogoja in Cross River state after hiding in thick forest for months. Children in the camp kicked a ball in the sand, sending red dust into the air. Dragging a sack and two clinging children, she queued to register for a temporary tent.
 
 Otim’s husband had been killed by soldiers who invaded Mbakem village in southwest Cameroon. She still wears all black clothing, her head shorn in mourning. She had brought her children and a few belongings hastily gathered together across land and water. With no money, Otim had to beg for transport to the UNHCR facility.
