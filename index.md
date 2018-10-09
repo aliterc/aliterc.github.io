@@ -92,6 +92,90 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1009 
+
+Dental care - adult
+
+Tooth decay and gum disease are caused by plaque, a sticky combination of bacteria and food. Plaque begins to build up on teeth within a few minutes after eating. If teeth are not cleaned well each day, plaque will lead to tooth decay or gum disease. If you do not remove plaque, it turns into a hard deposit called tartar that becomes trapped at the base of the tooth. Plaque and tartar irritate and inflame the gums. Bacteria and the toxins they produce cause the gums to become:
+
+Infected
+
+Swollen
+
+Tender
+
+By taking good care of your teeth and gums, you can help prevent problems such as tooth decay and gum disease (gingivitis or periodontitis). You should also teach your children how to brush and floss from an early age to help them protect their teeth.
+
+Plaque and tartar lead to a number of problems:
+
+Cavities are holes that damage the structure of teeth.
+
+Gingivitis is swollen, inflamed, and bleeding gums,
+
+Periodontitis is the destruction of the ligaments and bone that support the teeth, often leading to tooth loss.
+
+Bad breath (halitosis).
+
+Abscesses, pain, inability to use your teeth.
+
+Other health problems outside the mouth, ranging from preterm labor to heart disease.
+
+Information
+
+HOW TO TAKE CARE OF YOUR TEETH
+
+Healthy teeth are clean and have no cavities. Healthy gums are pink and firm. To maintain healthy teeth and gums, follow these steps:
+
+Floss at least once per day. It is best to floss before brushing. Flossing removes plaque from between the teeth and on the gums.
+
+Brush your teeth twice a day with a soft-bristled toothbrush. Brush 2 minutes each time.
+
+Use fluoride toothpaste. The fluoride helps strengthen tooth enamel and helps prevent tooth decay.
+
+Replace your toothbrush every 3 to 4 months or sooner if needed. A worn-out toothbrush will not clean your teeth as well.
+
+Eat a healthy diet. You are less likely to get gum disease if you eat healthy foods.
+
+Avoid sweets and sweetened drinks. Eating and drinking a lot of sweets increases your risk of cavities. If you do eat or drink sweets, brush your teeth soon after.
+
+DO NOT smoke. Smokers have more teeth and gum problems than non-smokers.
+
+Keep dentures, retainers, and other appliances clean. This includes brushing them regularly. You may also need to soak them in a cleansing solution.
+
+Schedule regular checkups with your dentist. Many dentists recommend having the teeth professionally cleaned every 6 months.
+
+Regular teeth cleaning by a dentist removes plaque that may develop, even with careful brushing and flossing. This is very important for getting at areas that are hard to reach on your own. Professional cleaning includes scaling and polishing. This procedure uses instruments to loosen and remove deposits from the teeth. Routine exams may include dental x-rays. Your dentist can catch problems early, so they do not become more serious and expensive to fix.
+
+Ask your dentist:
+
+What kind of toothbrush you should use, and how to brush your teeth well. Ask if an electric tooth brush is right for you. Electric tooth brushes have been shown to clean teeth better than manual toothbrushes. They often also have a timer to let you know when you have reached the 2 minute mark.
+
+How to properly floss your teeth. Overly vigorous or improper flossing may injure the gums.
+
+Whether you should use any special appliances or tools, such as water irrigation. This may sometimes help supplement (but not replace) brushing and flossing.
+
+Whether you could benefit from particular toothpastes or mouth rinses. In some cases, over-the-counter pastes and rinses may be doing you more harm than good, depending on your condition.
+
+WHEN TO CALL THE DENTIST
+
+Call your dentist if you have symptoms of a cavity that include:
+
+Pain in the tooth that occurs for no reason or is caused by food, beverages, brushing or flossing
+
+Sensitivity to hot or cold foods or drinks
+
+Get early treatment for gum disease. Call your dentist if you have symptoms of gum disease that include:
+
+Red or swollen gums
+
+Bleeding in the gums when you brush your teeth
+
+Bad breath
+
+Loose teeth
+
+Drifting teeth
+
 - 1008 https://sites.google.com/view/portfolio--when-they-click-in/home
 
 South Cameroon /kæməˈruːn/  a ‘big ghost town’
