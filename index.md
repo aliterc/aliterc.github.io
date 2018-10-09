@@ -92,9 +92,89 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1009 
+- 1009  ‘Picking Up Where We Left Off’
 
-Dental care - adult
+This issue in your hand or on your screen is both a departure and a sign of continuity.
+If Film Studies, the journal, sounds familiar, it is because you may have
+seen in your library our earlier incarnation. Film Studies was created and edited
+by Ian Christie and Michael Grant, then in the Department of Film Studies at the
+University of Kent, with Murray Smith and Peter Stanfield later joining the editorial
+team. The first issue of the journal appeared in 1999, with issues 1 and 2 published
+by the European Humanities Research Centre of the University of Oxford
+and issue 3 published by the University of Kent, before Manchester University
+Press (first) adopted the journal in 2003. Its original editorial advisory board
+was constituted by leading figures in the field, including Janet Bergstrom, Peter
+William Evans, Thomas Elsaesser, Simon Field, Tom Gunning, Laura Mulvey,
+Geoffrey Nowell-Smith, Steve Neale and Anthony Smith.
+
+Now in 2015, Film Studies is once again part of the stable of journals of
+Manchester University Press, with instructions from our editor Matthew Frost
+to ‘pick up where others left off’. As the inheritors of the great traditions of film
+studies at Kent, the best way we can honour the first Film Studies, is to pledge to
+build on their path-breaking efforts.
+
+One of the central ambitions of the original Film Studies was to promote and
+rejuvenate a more varied, pluralistic and interdisciplinary approach to the study
+of film. In approaching cinema and the moving image from several critical, conceptual
+and historical perspectives, we too are committed to that ambition. This
+is evident not only in the re-launch of Film Studies but in the founding of the
+Centre for the Interdisciplinary Study of Film and the Moving Image at Kent,
+which brings together academics working on film from several departments.
+Our distinct disciplinary origins and fields of expertise are the foundation for
+this collaborative and ambitious endeavour. We are, in alphabetical order, as
+follows. Mattias Frey, who specialises in  historiography and historical reception
+studies, film and other arts criticism, film and media culture, institutional
+and media industries analysis, classical and contemporary film theory, film and
+arts education as well as historical and contemporary European cinema (with
+particular emphasis on German and Austrian film). Antonio Lázaro-Reboll is
+currently working on Spain’s comic book production and cultures. His work on
+Spanish horror cinema has put this generic tradition in contact with other world
+cinemas. A historical approach to the study of Hollywood film history is the focus
+of Tamar Jeffers McDonald’s teaching and research. She is currently working on
+the impact of movie magazines on stardom, as well as continuing her interest in
+performance, film costume and film genres. Cecilia Sayad’s research encompasses
+three areas: film authorship, film criticism and the horror genre. In all of these
+she investigates the shifts brought about by pressing transformations in contemporary
+culture, such as digitalisation and the Internet. Peter Stanfield’s area of
+expertise is American film cultures with a particular focus on genre studies and
+the intermedial in popular cinema. Núria Triana-Toribio’s work has focused on
+distinct aspects of Spanish cinema and its film cultures, including how traditions
+and practices are constructed through film periodicals, film festivals, film institutions
+and legislation. Frances Kamm, our reviews editor, is a postgraduate in Film
+Studies. Her thesis looks at the relationship between the uncanny and technological
+developments in the cinematic medium.
+
+We unite several different areas of interest and five different linguistic and cultural
+backgrounds. We believe that this puts Film Studies in an ideal position to
+become a forum for the interdisciplinary, intercultural and intermedial study of
+film. Since 1999 when the journal was founded, the arrival of digital technologies
+has transformed filmmaking and diversified the forms of the moving image. We
+recognise that in order to understand the evolving landscape of film practice and
+the ever-changing study of film and the moving image, we need travelling companions
+who have a complex understanding of how film cultures and scholarship
+are being transformed constantly. We have an exemplary advisory board, distant
+from us in physical location but close to our desire to reflect upon the discipline.
+The content of this re-launch issue, number 12, is proof of that. Here are some
+important reflections on the state of the discipline of film studies. We offer you
+position papers of different length and content that address the current state of
+play, how we have arrived at this point and where the field is headed. Marijke de
+Valck, Mattias Frey, Susan Martin-Márquez, Vinicius Navarro, Will Straw and
+Heidee Wasson are sometimes reflective, sometimes polemical or argumentative,
+but they all bring their critical and authoritative voices to this conversation. They
+invite us to consider the road travelled so far and that yet to be explored. And we
+bring you the latest work of one of the original editorial advisory board members,
+Stephen Neale.
+
+We may have been asked to pick up where we left off, but the study of film
+has been transformed in the interim and continues to evolve. Film Studies, in its
+second incarnation, will contribute to and reflect on those changes. We hope you
+join us in this journey.
+
+Núria Triana Toribio
+
+Managing Editor of Film Studies
+
+- Dental care - adult
 
 Tooth decay and gum disease are caused by plaque, a sticky combination of bacteria and food. Plaque begins to build up on teeth within a few minutes after eating. If teeth are not cleaned well each day, plaque will lead to tooth decay or gum disease. If you do not remove plaque, it turns into a hard deposit called tartar that becomes trapped at the base of the tooth. Plaque and tartar irritate and inflame the gums. Bacteria and the toxins they produce cause the gums to become:
 
