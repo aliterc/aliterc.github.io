@@ -92,6 +92,42 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1010 Australian tuition provider Navitas gets $1.4 billion takeover offer
+
+SYDNEY (Reuters) - Australian education provider Navitas Ltd (NVT.AX) said on Wednesday it had received a A$1.97 billion ($1.4 billion) takeover bid from an Australian private equity firm and the company’s co-founder, sending its shares 20 percent higher.
+
+The offer for the nation’s largest listed private education company was 26.4 percent higher than Tuesday’s closing price, reflecting the value the bidders put on exposure to a volatile but high-growth business.
+
+But with operations in Australia, North America and Britain, the Perth-based company which provides English courses for foreign students is vulnerable to tougher U.S. immigration policies, visa rules and currency movements.
+
+The bid from a consortium led by fledgling private equity firm BGH Capital Pty Ltd, pension fund AustralianSuper and Navitas co-founder and top shareholder Rod Jones, lands two months after Navitas posted its first loss since listing in 2004.
+
+“Navitas has been going sideways and as a result the share price hasn’t gone anywhere,” Morningstar analyst Gareth James said.
+
+“A private equity firm can come in and change the strategy, make it growth-orientated, possibly do some M&A and bring it back to the market in a couple of years.”
+
+The bid offers A$5.50 per share in cash, or A$2.75 per share in cash and one ordinary share in the new unlisted company that will own Navitas for every two shares held in Navitas.
+
+Navitas shares hit A$5.27 in early trade, an eight-month high but still well below the offer price, amid doubts the deal will proceed. The broader market opened flat.
+
+The bid, which requires shareholder approval, is conditional on the company keeping net debt in line with brokers’ estimates and on revenue and margin targets remaining “supportable and achievable”.
+
+DOUBTS
+
+Michael McCarthy, chief market strategist at stockbroker CMC Markets, said there were also concerns about the role of board member Jones, who led Navitas until he stepped down as chief executive officer in February.
+
+“Shareholders tend to be a bit suspicious of attempts to take a company private involving existing management, and so there’s no guarantee that this will gain shareholders’ support,” he said.
+
+Under the deal, Jones said he would sell half his 12.6 percent stake to the consortium and roll the other half into the bidding company.
+
+The deal was “in the best interests of all Navitas shareholders,” he said in an emailed statement to Reuters.
+
+Navitas said the board would review the proposal. BGH had no immediate comment and AustralianSuper declined to comment.
+
+Earlier this year, Navitas forecast a “medium-term” downturn in the United States and closed two U.S. colleges due to the impact of hardline immigration policies.
+
+In Australia, it lost lucrative government contracts in 2017 but stands to benefit from surging international student enrolments, mostly from China, and a weaker Australian dollar.
+
 - 1009  ‘Picking Up Where We Left Off’
 
 This issue in your hand or on your screen is both a departure and a sign of continuity.
