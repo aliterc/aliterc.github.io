@@ -92,15 +92,15 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1010 Australian tuition provider Navitas gets $1.4 billion takeover offer
+- 1010 1657 Australian tuition provider Navitas gets $1.4 billion takeover offer
 
 SYDNEY (Reuters) - Australian education provider Navitas Ltd (NVT.AX) said on Wednesday it had received a A$1.97 billion ($1.4 billion) takeover bid from an Australian private equity firm and the company’s co-founder, sending its shares 20 percent higher.
 
-The offer for the nation’s largest listed private education company was 26.4 percent higher than Tuesday’s closing price, reflecting the value the bidders put on exposure to a volatile but high-growth business.
+The offer for the nation’s largest listed private education company was 26.4 percent higher than Tuesday’s closing price, reflecting the value the bidders put on exposure to a volatile /ˈvɑːlətl/ but high-growth business.
 
 But with operations in Australia, North America and Britain, the Perth-based company which provides English courses for foreign students is vulnerable to tougher U.S. immigration policies, visa rules and currency movements.
 
-The bid from a consortium led by fledgling private equity firm BGH Capital Pty Ltd, pension fund AustralianSuper and Navitas co-founder and top shareholder Rod Jones, lands two months after Navitas posted its first loss since listing in 2004.
+The bid from a consortium /kənˈsɔːrtiəm/ led by fledgling /ˈfledʒlɪŋ/ private equity firm BGH Capital Pty Ltd, pension fund AustralianSuper and Navitas co-founder and top shareholder Rod Jones, lands two months after Navitas posted its first loss since listing in 2004.
 
 “Navitas has been going sideways and as a result the share price hasn’t gone anywhere,” Morningstar analyst Gareth James said.
 
@@ -124,9 +124,9 @@ The deal was “in the best interests of all Navitas shareholders,” he said in
 
 Navitas said the board would review the proposal. BGH had no immediate comment and AustralianSuper declined to comment.
 
-Earlier this year, Navitas forecast a “medium-term” downturn in the United States and closed two U.S. colleges due to the impact of hardline immigration policies.
+Earlier this year, Navitas forecast a “medium-term” downturn /ˈdaʊntɜːrn/ in the United States and closed two U.S. colleges due to the impact of hardline immigration policies.
 
-In Australia, it lost lucrative government contracts in 2017 but stands to benefit from surging international student enrolments, mostly from China, and a weaker Australian dollar.
+In Australia, it lost lucrative /ˈluːkrətɪv/ government contracts in 2017 but stands to benefit from surging international student enrolments, mostly from China, and a weaker Australian dollar.
 
 - 1009  ‘Picking Up Where We Left Off’
 
