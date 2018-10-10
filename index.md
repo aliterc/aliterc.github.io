@@ -92,7 +92,15 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1010 1820-1852 girl on the train ...inoffensive duplex, subject to her grace and favour.
+- 1010 [Gonorrhea](https://www.oxfordlearnersdictionaries.com/definition/english/gonorrhoea#gonorrhoea__20) is a sexually transmitted disease. It is most common in young adults. The bacteria that cause gonorrhea can infect the genital tract, mouth, or anus. You can get gonorrhea during vaginal, oral, or anal sex with an infected partner. A pregnant woman can pass it to her baby during childbirth.
+
+Gonorrhea does not always cause symptoms. In men, gonorrhea can cause pain when urinating/ˈjʊrɪneɪt/ and discharge from the penis. If untreated, it can cause problems with the [prostate](https://www.oxfordlearnersdictionaries.com/definition/english/prostate?q=prostate) and [testicles](https://www.oxfordlearnersdictionaries.com/definition/english/testicle#testicle__12).
+
+In women, the early symptoms of gonorrhea often are mild. Later, it can cause bleeding between periods, pain when urinating, and increased discharge from the vagina. If untreated, it can lead to pelvic inflammatory disease, which causes problems with pregnancy and infertility.
+
+Your health care provider will diagnose gonorrhea with lab tests. Treatment is with antibiotics. Treating gonorrhea is becoming more difficult because drug-resistant strains are increasing. Correct usage of latex condoms greatly reduces, but does not eliminate, the risk of catching or spreading gonorrhea. The most reliable way to avoid infection is to not have anal, vaginal, or oral sex.
+
+- 1820-1852 girl on the train ...inoffensive duplex, subject to her grace and favour.
 
 - 1819 https://helpx.adobe.com/after-effects/using/layer-markers-composition-markers.html#online_resources_about_markers
 
