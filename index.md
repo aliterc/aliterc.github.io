@@ -92,7 +92,7 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1010 1657-1712-1722-first read-1732 Australian tuition provider Navitas gets $1.4 billion takeover offer
+- 1010 1657-1712-1722-first read-1732- second read- 1752 Australian tuition provider Navitas gets $1.4 billion takeover offer
 
 SYDNEY (Reuters) - Australian education provider Navitas Ltd (NVT.AX) said on Wednesday it had received a A$1.97 billion ($1.4 billion) takeover bid from an Australian private equity firm and the company’s co-founder, sending its shares 20 percent higher.
 
