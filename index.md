@@ -92,7 +92,7 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1010 1657-1712 Australian tuition provider Navitas gets $1.4 billion takeover offer
+- 1010 1657-1712-1722-first read-1732 Australian tuition provider Navitas gets $1.4 billion takeover offer
 
 SYDNEY (Reuters) - Australian education provider Navitas Ltd (NVT.AX) said on Wednesday it had received a A$1.97 billion ($1.4 billion) takeover bid from an Australian private equity firm and the company’s co-founder, sending its shares 20 percent higher.
 
@@ -100,7 +100,7 @@ The offer for the nation’s largest listed private education company was 26.4 p
 
 But with operations in Australia, North America and Britain, the Perth-based company which provides English courses for foreign students is vulnerable to tougher U.S. immigration policies, visa rules and currency movements.
 
-The bid from a consortium /kənˈsɔːrtiəm/ led by fledgling /ˈfledʒlɪŋ/ private equity firm BGH Capital Pty Ltd, pension fund AustralianSuper and Navitas co-founder and top shareholder Rod Jones, lands two months after Navitas posted its first loss since listing in 2004.
+The bid from a consortium /kənˈsɔːrtiəm/ led by fledgling /ˈfledʒlɪŋ/ private equity firm BGH Capital Pty /prəˈpraɪəteri/ Ltd, pension fund AustralianSuper and Navitas co-founder and top shareholder Rod Jones, lands two months after Navitas posted its first loss /lɔːs/ since listing in 2004.
 
 “Navitas has been going sideways and as a result the share price hasn’t gone anywhere,” Morningstar analyst [Gareth](https://www.pronouncenames.com/search?name=Gareth) James said.
 
