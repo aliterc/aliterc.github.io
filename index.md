@@ -92,7 +92,7 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1010 1820 girl on the train ...inoffensive duplex, subject to her grace and favour.
+- 1010 1820-1852 girl on the train ...inoffensive duplex, subject to her grace and favour.
 
 - 1819 https://helpx.adobe.com/after-effects/using/layer-markers-composition-markers.html#online_resources_about_markers
 
