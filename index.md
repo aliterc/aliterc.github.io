@@ -102,7 +102,7 @@ But with operations in Australia, North America and Britain, the Perth-based com
 
 The bid from a consortium /kənˈsɔːrtiəm/ led by fledgling /ˈfledʒlɪŋ/ private equity firm BGH Capital Pty Ltd, pension fund AustralianSuper and Navitas co-founder and top shareholder Rod Jones, lands two months after Navitas posted its first loss since listing in 2004.
 
-“Navitas has been going sideways and as a result the share price hasn’t gone anywhere,” Morningstar analyst Gareth James said.
+“Navitas has been going sideways and as a result the share price hasn’t gone anywhere,” Morningstar analyst [Gareth](https://www.pronouncenames.com/search?name=Gareth) James said.
 
 “A private equity firm can come in and change the strategy, make it growth-orientated, possibly do some M&A and bring it back to the market in a couple of years.”
 
@@ -114,7 +114,7 @@ The bid, which requires shareholder approval, is conditional on the company keep
 
 DOUBTS
 
-Michael McCarthy, chief market strategist at stockbroker CMC Markets, said there were also concerns about the role of board member Jones, who led Navitas until he stepped down as chief executive officer in February.
+[Michael](https://www.pronouncenames.com/pronounce/Michael) [McCarthy](https://www.pronouncenames.com/pronounce/McCarthy), chief market strategist at stockbroker CMC Markets, said there were also concerns about the role of board member Jones, who led Navitas until he stepped down as chief executive officer in February.
 
 “Shareholders tend to be a bit suspicious of attempts to take a company private involving existing management, and so there’s no guarantee that this will gain shareholders’ support,” he said.
 
