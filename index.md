@@ -92,6 +92,28 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1013 And the fattest bear in Alaska is ... 409 Beadnose
+
+ANCHORAGE (Reuters) - In an Alaska clash of tubby titans that has become a social media sensation, a shaggy, brown and possibly pregnant mother known as 409 Beadnose was crowned on Tuesday as Fattest Bear of 2018.
+
+Beadnose nosed out a larger Alaska brown bear, a male called 747 – and likened to a jumbo jet – in online votes collected by staff at Katmai National Park and Preserve during a wildly popular event called Fat Bear Week. Male bears are bigger but Beadnose was deemed to be more rotund.
+
+“Her radiant rolls were deemed by the voting public to be this year’s most fabulous flab,” the park said on its Facebook page. “Our chubby champ has a few more weeks to chow down on lingering salmon carcasses before she heads up the mountains to dig herself a den and savor her victory.”
+
+Katmai, which hugs the mountainous Gulf of Alaska coast, is known for its massive, salmon-chomping ursine residents.
+
+October, the month before bears go into their dens to hibernate, is when the animals work the hardest to build the body fat they need to survive winter. And October is a perfect time for nature lovers to watch Katmai’s livestream video as the park’s brown bears do their pre-hibernation gorging.
+
+Fat Bear Week may be fun and games for human spectators, but it is serious business for bears, said Andrew LaValle, a Katmai ranger who is in charge of most of the park’s social media postings.
+
+“This might be entertaining, especially with these beautiful majestic animals, but this is a life-or-death struggle,” he said. The bears have to eat a year’s worth of food in a few months but really start to chow down in June when sockeye salmon begin swimming upstream through the park to spawn. Bears can lose a third of their body weight while hibernating, LaValle said.
+
+Fat Bear Week got its start in 2014 as a one-day educational event called Fat Bear Tuesday, LaValle said. It became a week-long event the next year.
+
+Throughout the past week, park staffers have posted photos of individual bears and gathered input from viewers who selected favorites in a bracketed, tournament-style competition. This year’s competition started with 12 bears before reaching Tuesday’s Beadnose-747 faceoff.
+
+Luckily for Katmai bears, their home holds a river teeming with fish from the world’s largest natural salmon runs. The Brooks River is a spawning site for salmon based in southwestern Alaska’s Bristol Bay.
+
 - 1010 [Gonorrhea](https://www.oxfordlearnersdictionaries.com/definition/english/gonorrhoea#gonorrhoea__20) is a sexually transmitted disease. It is most common in young adults. The bacteria that cause gonorrhea can infect the genital tract, mouth, or anus. You can get gonorrhea during vaginal, oral, or anal sex with an infected partner. A pregnant woman can pass it to her baby during childbirth.
 
 Gonorrhea does not always cause symptoms. In men, gonorrhea can cause pain when urinating/ˈjʊrɪneɪt/ and discharge from the penis. If untreated, it can cause problems with the [prostate](https://www.oxfordlearnersdictionaries.com/definition/english/prostate?q=prostate) and [testicles](https://www.oxfordlearnersdictionaries.com/definition/english/testicle#testicle__12).
