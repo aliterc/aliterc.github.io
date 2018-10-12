@@ -94,9 +94,9 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 1013 And the fattest bear in Alaska is ... 409 Beadnose
 
-ANCHORAGE (Reuters) - In an Alaska clash of tubby titans that has become a social media sensation, a shaggy, brown and possibly pregnant mother known as 409 Beadnose was crowned on Tuesday as Fattest Bear of 2018.
+ANCHORAGE (Reuters) - In an Alaska/əˈlæskə/ clash of tubby titans /ˈtaɪtn/ that has become a social media sensation, a shaggy, brown and possibly pregnant mother known as 409 Beadnose was crowned on Tuesday as Fattest Bear of 2018.
 
-Beadnose nosed out a larger Alaska brown bear, a male called 747 – and likened to a jumbo jet – in online votes collected by staff at Katmai National Park and Preserve during a wildly popular event called Fat Bear Week. Male bears are bigger but Beadnose was deemed to be more rotund.
+Beadnose nosed out a larger Alaska brown bear, a male called 747 – and _[likened /ˈlaɪkən/ to](https://www.oxfordlearnersdictionaries.com/definition/english/liken-to)_ a jumbo /ˈdʒʌmboʊ/ jet – in online votes collected by staff at Katmai National Park and Preserve during a wildly popular event called Fat Bear Week. Male bears are bigger but Beadnose was [deemed](https://www.oxfordlearnersdictionaries.com/definition/english/deem#deem__11) to be more rotund /roʊˈtʌnd/. _I deem it an honour to be invited._
 
 “Her radiant rolls were deemed by the voting public to be this year’s most fabulous flab,” the park said on its Facebook page. “Our chubby champ has a few more weeks to chow down on lingering salmon carcasses before she heads up the mountains to dig herself a den and savor her victory.”
 
