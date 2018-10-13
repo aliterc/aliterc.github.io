@@ -119,15 +119,15 @@ rd_Scooter creates a panel with controls for moving various combinations of item
 
 rd_CountMarkers shows the number of markers on the selected layer.
 
-And the fattest bear in Alaska is ... 409 Beadnose
+- And the fattest bear in Alaska is ... 409 Beadnose
 
 [ANCHORAGE](https://www.youtube.com/watch?v=J7RLp7kRiEk) (Reuters) - In an Alaska/əˈlæskə/ clash of tubby titans /ˈtaɪtn/ that has become a social media sensation, a shaggy, brown and possibly pregnant mother known as 409 Beadnose was crowned on Tuesday as Fattest Bear of 2018.
 
 Beadnose nosed out a larger Alaska brown bear, a male called 747 – and _[likened /ˈlaɪkən/ to](https://www.oxfordlearnersdictionaries.com/definition/english/liken-to)_ a jumbo /ˈdʒʌmboʊ/ jet – in online votes collected by staff at Katmai National Park and Preserve during a wildly popular event called Fat Bear Week. Male bears are bigger but Beadnose was [deemed](https://www.oxfordlearnersdictionaries.com/definition/english/deem#deem__11) to be more rotund /roʊˈtʌnd/. _I deem it an honour to be invited._
 
-“Her radiant rolls were deemed by the voting public to be this year’s most fabulous flab,” the park said on its Facebook page. “Our chubby champ has a few more weeks to chow down on lingering salmon carcasses before she heads up the mountains to dig herself a den and savor her victory.”
+“Her radiant rolls were deemed by the voting public to be this year’s most fabulous flab,” the park said on its Facebook page. “Our chubby champ has a few more weeks to _chow down on_ [lingering](https://www.oxfordlearnersdictionaries.com/definition/english/lingering?q=lingering) salmon carcasses before she heads up the mountains to dig herself a den and savor her victory.” _a lingering smell of machine oil_
 
-Katmai, which hugs the mountainous Gulf of Alaska coast, is known for its massive, salmon-chomping ursine residents.
+Katmai, which hugs the mountainous Gulf of Alaska coast, is known for its massive, salmon-chomping /tʃɑːmp/ ursine/ˈɜːrsaɪn/ residents._She was chomping away on a bagel._
 
 October, the month before bears go into their dens to hibernate, is when the animals work the hardest to build the body fat they need to survive winter. And October is a perfect time for nature lovers to watch Katmai’s livestream video as the park’s brown bears do their pre-hibernation gorging.
 
