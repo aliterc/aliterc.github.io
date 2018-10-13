@@ -127,7 +127,7 @@ Beadnose nosed out a larger Alaska brown bear, a male called 747 – and _[liken
 
 “Her radiant rolls were deemed by the voting public to be this year’s most fabulous flab,” the park said on its Facebook page. “Our chubby champ has a few more weeks to _chow down on_ [lingering](https://www.oxfordlearnersdictionaries.com/definition/english/lingering?q=lingering) salmon carcasses before she heads up the mountains to dig herself a den and savor her victory.” _a lingering smell of machine oil_
 
-Katmai, which hugs the mountainous Gulf of Alaska coast, is known for its massive, salmon-chomping /tʃɑːmp/ ursine/ˈɜːrsaɪn/ residents._She was chomping away on a bagel._
+Katmai, which hugs the mountainous Gulf of Alaska coast, is known for its massive, salmon-chomping /tʃɑːmp/ ursine/ˈɜːrsaɪn/ residents._She was chomping away on a bagel._ [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/Eb1013.m4a)
 
 October, the month before bears go into their dens to hibernate, is when the animals work the hardest to build the body fat they need to survive winter. And October is a perfect time for nature lovers to watch Katmai’s livestream video as the park’s brown bears do their pre-hibernation gorging.
 
