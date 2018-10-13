@@ -92,7 +92,34 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1013 And the fattest bear in Alaska is ... 409 Beadnose
+- 1013 Scripts and utilities for working with markers
+Paul Tuersley provides a script on the AE Enhancers forum for splitting layers at layer markers.
+
+Lloyd Alvarez provides scripts on the After Effects Scripts website that do the following:
+
+Magnum, the Edit Detector automatically detects edits in a footage layer and places a layer marker at each edit (or splits the layer into a separate layer for each edit).
+
+Zorro, the Layer Tagger allows you to tag layers and then select, [shy, and solo](https://aescripts.com/zorro-the-layer-tagger/) layers according to their tags. The tags are appended to comments in the Comments column in the Timeline panel and can also be added as layer markers.
+
+Layer Marker Batch Editor edits marker attributes on all selected layers, including Flash cue point attributes.
+
+Jeff Almasol provides scripts on his redefinery website that do the following:
+
+rd_CopyMarkers copies layer markers from one layer to any number of other layers.
+
+rd_KeyMarkers creates new layer markers (either on the selected layer or on a new null layer) with comments that provide information about keyframes at the same times.
+
+rd_MapTextFileToMarkers sets keyframes for the Source Text property of a text layer and sets the values to text from a text file. The keyframes are placed at times specified by layer markers on the text layer.
+
+rd_MarkerNavigator creates a panel that makes navigating to markers and viewing their comments and other values very convenient.
+
+rd_RemoveMarkers automatically removes markers from selected layers based on specified criteria (e.g., all markers in work area).
+
+rd_Scooter creates a panel with controls for moving various combinations of items in time, including layer In point, layer Out point, layer source frames, keyframes, and markers.
+
+rd_CountMarkers shows the number of markers on the selected layer.
+
+And the fattest bear in Alaska is ... 409 Beadnose
 
 [ANCHORAGE](https://www.youtube.com/watch?v=J7RLp7kRiEk) (Reuters) - In an Alaska/əˈlæskə/ clash of tubby titans /ˈtaɪtn/ that has become a social media sensation, a shaggy, brown and possibly pregnant mother known as 409 Beadnose was crowned on Tuesday as Fattest Bear of 2018.
 
