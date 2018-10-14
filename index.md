@@ -92,11 +92,11 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1014 Broadcom gets EU antitrust nod for CA Technologies deal
+- 1014 Broadcom gets EU [antitrust](https://www.oxfordlearnersdictionaries.com/definition/english/antitrust?q=antitrust) nod/nɑːd/ for CA Technologies deal
 
-(Reuters) - Chipmaker Broadcom Inc said on Friday it has obtained antitrust clearance from the European Union for its $19-billion deal to acquire software company CA Technologies Inc.
+(Reuters) - Chipmaker Broadcom [Inc /ɪŋk/](https://www.oxfordlearnersdictionaries.com/definition/english/inc_2) said on Friday it has obtained antitrust clearance from the European Union for its $19-billion deal to acquire software company CA Technologies Inc.
 
-Broadcom had on Wednesday said a memo, purportedly signed by the U.S. Department of Defense and circulated among lawmakers calling for a review of the deal, was likely fake.
+Broadcom had on Wednesday said a memo, purportedly/pərˈpɔːrtɪdli/ signed by the U.S. Department of Defense and circulated among lawmakers calling for a review of the deal, was likely fake.
 
 The chipmaker said it now expects the deal to close on Nov. 5, as the clearance from the EU was the last regulatory hurdle.
 
