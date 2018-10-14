@@ -92,7 +92,38 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1014 Boris and Brexit gym punchbags help Londoners vent their rage
+
+LONDON (Reuters) - Londoners fed up with Brexit can vent their rage with a special gym routine that includes high-intensity exercises like pummeling punchbags bearing photographs of some of the main players like Boris Johnson and Jean-Claude Juncker.
+
+The 30-minute circuit also features the “Theresa May Sack Race,” “Jacob Rees-Logg lifts” and “Politico Headslammer” in which participants slam balls on to pictures of British Prime Minister Theresa May and opposition Labour party leader Jeremy Corbyn.
+
+There is also a “Cameron Quitters’ Corner” named after May’s predecessor David Cameron to take time out.
+
+The Brexfit classes are being offered by fitness company Gymbox, whose boss Marc Diaper said the theme was chosen by a members’ poll of their main frustrations with living in the British capital.
+
+Fifty two percent of respondents said Brexit, followed by rent prices and train delays.
+
+“We thought well, what better way to actually release frustration and anger than actually put on a Brexfit class as we’ve called it, where you can actually punch your most hated politician in the face on a punch bag,” he told Reuters.
+
+The course was designed with the help of an anger management expert, said fitness instructor Boriss Visokoborskis.
+
+“It’s for our members to relieve the stress caused by Brexit, and all the frustration they see in the mass media and internet and so on,” he added. “They are leaving our classes feeling relieved, lighter and they do something good for themselves, they work on their body.”
+
+Student Ania Jarzabkiewicz, 26, originally from Poland, said she felt “amazing” after the class.
+
+“I have a problem to get my student loan because of Brexit, so today I really take out my frustration on this whole situation and I feel really good,” she said.
+
+Fitness coach George, 25, said his favorite exercises were the sack races and punch bags. In this particular class, leading Brexiteer and former Foreign Secretary Johnson bore the brunt of his frustration.
+
+“It’d be wrong to punch him in the face in real life so ... doing it on a punch bag there’s nothing wrong with that, and it’s definitely a great way to get your frustration out,” he said.
+
+With six months until Britain leaves the EU, May has yet to reach a deal on the terms of the divorce, and her plan for future trade ties has been rebuffed by both the EU and many in her own Conservative Party.
+
+Corbyn said this week that Labour would vote against a Brexit deal based on May’s proposals, the strongest warning yet to a prime minister whose plan to leave the EU is hanging by a thread.
+
 - 1013 Scripts and utilities for working with markers
+
 Paul Tuersley provides a script on the AE Enhancers forum for splitting layers at layer markers.
 
 Lloyd Alvarez provides scripts on the After Effects Scripts website that do the following:
