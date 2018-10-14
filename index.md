@@ -92,7 +92,15 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1014 Boris and Brexit gym punchbags help Londoners vent their rage
+- 1014 Broadcom gets EU antitrust nod for CA Technologies deal
+
+(Reuters) - Chipmaker Broadcom Inc said on Friday it has obtained antitrust clearance from the European Union for its $19-billion deal to acquire software company CA Technologies Inc.
+
+Broadcom had on Wednesday said a memo, purportedly signed by the U.S. Department of Defense and circulated among lawmakers calling for a review of the deal, was likely fake.
+
+The chipmaker said it now expects the deal to close on Nov. 5, as the clearance from the EU was the last regulatory hurdle.
+
+- Boris and Brexit gym punchbags help Londoners vent their rage
 
 LONDON (Reuters) - Londoners fed up with Brexit can vent their rage with a special gym routine that includes high-intensity exercises like pummeling punchbags bearing photographs of some of the main players like Boris Johnson and Jean-Claude Juncker.
 
