@@ -100,11 +100,11 @@ Broadcom had on Wednesday said a memo, purportedly/pərˈpɔːrtɪdli/ signed by
 
 The chipmaker said it now expects the deal to close on Nov. 5, as the clearance from the EU was the last regulatory hurdle.
 
-- Boris and Brexit gym punchbags help Londoners vent their [rage](https://www.oxfordlearnersdictionaries.com/definition/english/rage_1?q=rage)
+- Boris and Brexit gym punchbags help Londoners [vent](https://www.oxfordlearnersdictionaries.com/definition/english/vent_2) their [rage](https://www.oxfordlearnersdictionaries.com/definition/english/rage_1?q=rage)
 
-LONDON (Reuters) - Londoners fed up with Brexit can vent their rage with a special gym routine that includes high-intensity exercises like pummeling punchbags bearing photographs of some of the main players like Boris Johnson and Jean-Claude Juncker.
+LONDON (Reuters) - Londoners fed up with Brexit can vent their rage with a special gym routine that includes high-intensity exercises like [pummeling](https://www.oxfordlearnersdictionaries.com/definition/english/pummel#pummel__14) punchbags bearing photographs of some of the main players like Boris Johnson and Jean-Claude Juncker.
 
-The 30-minute circuit /ˈsɜːrkɪt/ also features the “Theresa May Sack Race,” “Jacob Rees-Logg lifts” and “Politico Headslammer” in which participants slam balls on to pictures of British Prime Minister Theresa May and opposition Labour party leader Jeremy Corbyn.
+The 30-minute circuit /ˈsɜːrkɪt/ also features the “Theresa May Sack Race,” “Jacob Rees-Logg lifts” and “Politico Headslammer” in which participants [slam](https://www.oxfordlearnersdictionaries.com/definition/english/slam_1?q=slam) balls on to pictures of British Prime Minister Theresa May and opposition Labour party leader Jeremy Corbyn.
 
 There is also a “Cameron Quitters’ Corner” named after May’s predecessor/ˈpredəsesər/ David Cameron to take time out.
 
@@ -126,9 +126,9 @@ Fitness coach George, 25, said his favorite exercises were the sack races and pu
 
 “It’d be wrong to punch him in the face in real life so ... doing it on a punch bag there’s nothing wrong with that, and it’s definitely a great way to get your frustration out,” he said.
 
-With six months until Britain leaves the EU, May has yet to reach a deal on the terms of the divorce, and her plan for future trade ties has been rebuffed by both the EU and many in her own Conservative Party.
+With six months until Britain leaves the EU, May has yet to reach a deal on the terms of the divorce, and her plan for future trade ties has been [rebuffed](https://www.oxfordlearnersdictionaries.com/definition/english/rebuff_1#rebuff_1__15) by both the EU and many in her own Conservative Party.
 
-Corbyn said this week that Labour would vote against a Brexit deal based on May’s proposals, the strongest warning yet to a prime minister whose plan to leave the EU is hanging by a thread.
+Corbyn said this week that Labour would vote against a Brexit deal based on May’s proposals, the strongest warning yet to a prime minister whose plan to leave the EU is hanging by a thread. [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/Eb%201014.m4a)
 
 - 1013 Scripts and utilities for working with markers
 
