@@ -100,13 +100,13 @@ Broadcom had on Wednesday said a memo, purportedly/pərˈpɔːrtɪdli/ signed by
 
 The chipmaker said it now expects the deal to close on Nov. 5, as the clearance from the EU was the last regulatory hurdle.
 
-- Boris and Brexit gym punchbags help Londoners vent their rage
+- Boris and Brexit gym punchbags help Londoners vent their [rage](https://www.oxfordlearnersdictionaries.com/definition/english/rage_1?q=rage)
 
 LONDON (Reuters) - Londoners fed up with Brexit can vent their rage with a special gym routine that includes high-intensity exercises like pummeling punchbags bearing photographs of some of the main players like Boris Johnson and Jean-Claude Juncker.
 
-The 30-minute circuit also features the “Theresa May Sack Race,” “Jacob Rees-Logg lifts” and “Politico Headslammer” in which participants slam balls on to pictures of British Prime Minister Theresa May and opposition Labour party leader Jeremy Corbyn.
+The 30-minute circuit /ˈsɜːrkɪt/ also features the “Theresa May Sack Race,” “Jacob Rees-Logg lifts” and “Politico Headslammer” in which participants slam balls on to pictures of British Prime Minister Theresa May and opposition Labour party leader Jeremy Corbyn.
 
-There is also a “Cameron Quitters’ Corner” named after May’s predecessor David Cameron to take time out.
+There is also a “Cameron Quitters’ Corner” named after May’s predecessor/ˈpredəsesər/ David Cameron to take time out.
 
 The Brexfit classes are being offered by fitness company Gymbox, whose boss Marc Diaper said the theme was chosen by a members’ poll of their main frustrations with living in the British capital.
 
@@ -116,13 +116,13 @@ Fifty two percent of respondents said Brexit, followed by rent prices and train 
 
 The course was designed with the help of an anger management expert, said fitness instructor Boriss Visokoborskis.
 
-“It’s for our members to relieve the stress caused by Brexit, and all the frustration they see in the mass media and internet and so on,” he added. “They are leaving our classes feeling relieved, lighter and they do something good for themselves, they work on their body.”
+“It’s for our members to relieve/rɪˈliːv/ the stress caused by Brexit, and all the frustration they see in the mass media and internet and so on,” he added. “They are leaving our classes feeling relieved, lighter and they do something good for themselves, they work on their body.” _to relieve the symptoms of a cold_
 
 Student Ania Jarzabkiewicz, 26, originally from Poland, said she felt “amazing” after the class.
 
 “I have a problem to get my student loan because of Brexit, so today I really take out my frustration on this whole situation and I feel really good,” she said.
 
-Fitness coach George, 25, said his favorite exercises were the sack races and punch bags. In this particular class, leading Brexiteer and former Foreign Secretary Johnson bore the brunt of his frustration.
+Fitness coach George, 25, said his favorite exercises were the sack races and punch bags. In this particular class, leading Brexiteer and former Foreign Secretary Johnson _bore the brunt of_ his frustration.
 
 “It’d be wrong to punch him in the face in real life so ... doing it on a punch bag there’s nothing wrong with that, and it’s definitely a great way to get your frustration out,” he said.
 
