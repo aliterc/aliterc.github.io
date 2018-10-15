@@ -268,7 +268,7 @@ Motau could not make any definitive finding on this but recommended further inve
 
 Matjila responded: “I emphatically/ɪmˈfætɪkli/ reject any suggestion that I may have received R5 million to facilitate further funding for VBS Mutual Bank. In fact, the portfolio management committee of the PIC, turned down an application to put more money into VBS Mutual Bank, two days before VBS was placed under curatorship,” he said.
 
-“Such allegations are without merit and no facts or evidence could be placed before Advocate Motau’s panel of investigation to substantiate these allegations, which I regard as malicious. However, should an investigation be instituted into these allegations, I am willing and ready to subject myself to the process.” — Fin 24
+“Such allegations are without merit and no facts or evidence could be placed before Advocate Motau’s panel of investigation to substantiate these allegations, which I regard as malicious. However, should an investigation be instituted into these allegations, I am willing and ready to subject myself to the process.” — Fin 24 [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/Eb%201015.m4a)
 
 - 1014 Broadcom gets EU [antitrust](https://www.oxfordlearnersdictionaries.com/definition/english/antitrust?q=antitrust) nod/nɑːd/ for CA Technologies deal
 
@@ -1482,6 +1482,8 @@ Nene was addressing the Moody’s Sub-Saharan Africa Summit, but his comments hi
 BERLIN, Sept 12 (Reuters) - World and Olympic champion Kristina Vogel, who was paralysed following a training crash in June, said on Wednesday she was ready to tackle her new life but has had no contact with the Dutch rider involved in the collision.
 
 In a news conference at the Berlin hospital where she has been treated, Vogel, a record 11-time world champion, said she had accepted the fact that she would not walk again moments after the accident at the Cottbus Sport Centre Velodrome.
+
+- [L’œuf confit](https://github.com/aliterc/aliterc.github.io/blob/master/FB%200915.m4a)
 
 - SPH tips and tricks
 
