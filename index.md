@@ -192,15 +192,14 @@ function checkIfSolid(pItem) {
 
 The ANC has welcomed a final investigation report into large-scale fraud at VBS Mutual Bank, saying heads must roll where there was any wrongdoing.
 
-The report, commissioned by the South African Reserve Bank (SARB), recommended that more than 50 individuals be criminally charged and held liable in civil proceedings, following the bank’s implosion earlier this year.
+The report, commissioned by the South African Reserve Bank (SARB), recommended that more than 50 individuals be criminally charged and held [liable](https://www.oxfordlearnersdictionaries.com/definition/english/liable?q=liable+) in civil proceedings, following the bank’s implosion earlier this year.
 
 This includes the bank’s former executives and their associates, shareholder executives, politicians and their relatives and auditors who signed off on the bank’s “fraudulent” financials.
 
 The report was compiled by advocate Terry Motau, who was appointed to head an investigation into the bank’s collapse.
 
-“The ‘Great Bank Heist’ report is alarming and highlights the roles of a range of individuals and institutions in these heinous events,” said ANC spokesperson Pule Mabe.
+“The ‘Great Bank Heist /haɪst/’ report is alarming and highlights the roles of a range of individuals and institutions in these heinous  /ˈheɪnəs/events,” said ANC spokesperson Pule Mabe.
 
-READ MORE: New report backs criminal charges against VBS ‘captors’
 “The report points towards grave abuse of authority and office as well as worrying instances of corruption.”
 
 Mabe said the Reserve Bank was now expected to act decisively and with speed to process the recommendations in the report.
@@ -209,18 +208,19 @@ Mabe said the Reserve Bank was now expected to act decisively and with speed to 
 
 In a statement on Wednesday, the Reserve Bank said the evidence in the report was not a reflection of the innocence or guilt of any party, as not all parties had been given the opportunity to respond to the evidence.
 
-It has previously been reported that between 2015 and early 2018, when the Reserve Bank placed VBS under curatorship due to a liquidity crisis, the chair of the bank, Tshifhiwa Matodzi — together with his co-directors and ally Robert Madzonga — facilitated the looting of nearly R2-billion.
+It has previously been reported that between 2015 and early 2018, when the Reserve Bank placed VBS under curatorship due to a liquidity crisis, the chair of the bank, Tshifhiwa Matodzi — together with his co-directors and ally Robert Madzonga — facilitated the [looting](https://www.oxfordlearnersdictionaries.com/definition/english/loot_1?q=loot) of nearly R2-billion.
 
 Both have steadfastly maintained their innocence.
 
 The Public Investment Corporation (PIC) welcomed the report and said it had already taken a number of steps against its two delegated directors on the VBS board, Ernest Nesane and Paul Magula.
 
 PIC spokesperson Sekgoela Sekgoela said they were no longer employed there. 
+
 Maqula was dismissed for incompetence in April and Nesane resigned.
 
 The Financial Sector Conduct Authority debarred the men after the PIC applied in terms of the Financial Advisory and Intermediary Services Act.
 
-The PIC was in the process of applying to have them declared delinquent directors and, in consultation with the Prudential Authority, will lay criminal charges against them.
+The PIC was in the process of applying to have them declared delinquent directors and, in consultation with the Prudential Authority, will lay criminal charges against them._credit deliquents_
 
 With Nesane, the PIC was in the process of applying to have him struck from the roll of attorneys.
 
@@ -228,9 +228,11 @@ Sekgoela said the report made mention of testimony to the effect that PIC CEO Da
 
 Motau could not make any definitive finding on this but recommended further investigation by authorities.
 
-Matjila responded: “I emphatically reject any suggestion that I may have received R5 million to facilitate further funding for VBS Mutual Bank. In fact, the portfolio management committee of the PIC, turned down an application to put more money into VBS Mutual Bank, two days before VBS was placed under curatorship,” he said.
+Matjila responded: “I emphatically/ɪmˈfætɪkli/ reject any suggestion that I may have received R5 million to facilitate further funding for VBS Mutual Bank. In fact, the portfolio management committee of the PIC, turned down an application to put more money into VBS Mutual Bank, two days before VBS was placed under curatorship,” he said.
 
-“Such allegations are without merit and no facts or evidence could be placed before Advocate Motau’s panel of investigation to substantiate these allegations, which I regard as malicious. However, should an investigation be instituted into these allegations, I am willing and ready to subject myself to the process.” — Fin 24- 1014 Broadcom gets EU [antitrust](https://www.oxfordlearnersdictionaries.com/definition/english/antitrust?q=antitrust) nod/nɑːd/ for CA Technologies deal
+“Such allegations are without merit and no facts or evidence could be placed before Advocate Motau’s panel of investigation to substantiate these allegations, which I regard as malicious. However, should an investigation be instituted into these allegations, I am willing and ready to subject myself to the process.” — Fin 24
+
+- 1014 Broadcom gets EU [antitrust](https://www.oxfordlearnersdictionaries.com/definition/english/antitrust?q=antitrust) nod/nɑːd/ for CA Technologies deal
 
 (Reuters) - Chipmaker Broadcom [Inc /ɪŋk/](https://www.oxfordlearnersdictionaries.com/definition/english/inc_2) said on Friday it has obtained antitrust clearance from the European Union for its $19-billion deal to acquire software company CA Technologies Inc.
 
