@@ -92,7 +92,37 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1015 Vitiligo
+- 1015 Techniques appliquées à la cuisson des légumes
+
+Cuire/kɥiʀ/ à l'anglaise, sauter au beurre/bœʀ/, glacer, les légumes se prêtent à une multitude de cuissons.
+
+0915 L’œuf confit
+
+Un jaune d'oeuf à la texture crémeuse qui s'utilise comme un condiment.
+
+Préparation : 5' Cuisson : 60' Facile Pour 3 personnes.
+
+Ingrédients  
+
+Pour cette recette d'oeufs confits
+
+3 jaunes d'oeufs - huile d'olive.
+
+Préparation de la recette
+
+Clarifier les œufs et ne garder que les jaunes.
+
+Placer les jaunes dans des ramequins individuels ou dans un plat adapté pour une plus grande quantité.
+
+Recouvrir les jaunes d’œufs avec de l'huile.
+
+Placer au four vapeur à 70°C pendant une heure.
+
+Retourner les œufs à mi-cuisson.
+
+En fin de cuisson, déposer les jaunes sur papier absorbant avant de servir.
+
+- Vitiligo
 
 Vitiligo causes white patches on your skin. It can also affect your eyes, mouth, and nose. It occurs when the cells that give your skin its color are destroyed. No one knows what destroys them. It is more common in people with autoimmune diseases, and it might run in families. It usually starts before age 40.
 
