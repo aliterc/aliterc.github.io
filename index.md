@@ -192,7 +192,7 @@ function checkIfSolid(pItem) {
 
 The ANC has welcomed a final investigation report into large-scale fraud at VBS Mutual Bank, saying heads must roll where there was any wrongdoing.
 
-The report, commissioned by the South African Reserve Bank (SARB), recommended that more than 50 individuals be criminally charged and held [liable](https://www.oxfordlearnersdictionaries.com/definition/english/liable?q=liable+) in civil proceedings, following the bank’s implosion earlier this year.
+The report, commissioned by the South African Reserve Bank (SARB), recommended that more than 50 individuals be criminally charged and held [liable](https://www.oxfordlearnersdictionaries.com/definition/english/liable?q=liable+) in civil proceedings, following the bank’s [implosion](https://www.oxfordlearnersdictionaries.com/definition/english/implosion?q=implosion) earlier this year.
 
 This includes the bank’s former executives and their associates, shareholder executives, politicians and their relatives and auditors who signed off on the bank’s “fraudulent” financials.
 
