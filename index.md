@@ -92,7 +92,143 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1014 Broadcom gets EU [antitrust](https://www.oxfordlearnersdictionaries.com/definition/english/antitrust?q=antitrust) nod/nɑːd/ for CA Technologies deal
+- 1015 If you would like to rename all or selected groups of your project's Solids to reflect the Solids' dimensions, use this. You can append the existing names or replace them.
+
+`//'Better Solid Names" - a simple script for renaming solids in an After Effects project to show their dimensions.
+//Created by CRGreen, suggested by someone on aenhancers.com
+
+scriptVer = ".9";
+
+function buildSolidRenamerUI(this_obj_) {
+    var solidRenameWin = (this_obj_ instanceof Panel)
+    ? this_obj_
+    : new Window('palette', ('Better Solid Names (Version ' + scriptVer + ")"),[273,205,707,427]);
+    solidRenameWin.ctl_button5 = solidRenameWin.add('button', [262,179,396,208], 'Rename Now');
+    solidRenameWin.ctl_button5.onClick = function () { mainSolidRename(solidRenameWin) ; this.parent.close(1);}
+    solidRenameWin.cancB = solidRenameWin.add('button', [262-66,179,262-66+44,208], 'Close');
+    solidRenameWin.cancB.onClick = function () { this.parent.close(0);}
+    
+    solidRenameWin.useSelRadio = solidRenameWin.add('radiobutton', [33,22,329,44], 'Work on solids in selected project items');
+    solidRenameWin.useSelRadio.value = true;
+    solidRenameWin.doAllRadio = solidRenameWin.add('radiobutton', [33,52,329,74], 'Search for and work on all solids in project');
+    solidRenameWin.doAllRadio.value = false;
+    solidRenameWin.appendCheck = solidRenameWin.add('checkbox', [33,92,423,114], 'Append dimensions to existing names instead of replacing names');
+    solidRenameWin.appendCheck.value = true;
+    solidRenameWin.ctl_label5 = solidRenameWin.add('statictext', [44,136,234,156], 'Use this between dimensions:');
+    solidRenameWin.ctl_label5.justify = 'right';
+    solidRenameWin.dimensSep = solidRenameWin.add('edittext', [237,130,307,152], 'x');
+    solidRenameWin.dimensSep.justify = 'left';
+    
+    return solidRenameWin
+}
+var solidRenameW = buildSolidRenamerUI(this);
+if (solidRenameW.toString() == "[object Panel]") {
+    solidRenameW;
+} else {
+    solidRenameW.show();
+}
+
+function mainSolidRename(w) {
+    useSel = w.useSelRadio.value;
+    useAppend = w.appendCheck.value;
+    dimSep = w.dimensSep.text;
+    var everyItem = app.project.items;
+    
+    var s = [null];
+    
+    for (var i = everyItem.length; i >= 1; i--) {
+        eyeTem = everyItem[i];
+        
+        if (useSel) {//now unifying, selection or all
+            if (eyeTem.selected) {
+                s[s.length] = eyeTem;
+            }
+        }else{
+            s[s.length] = eyeTem;
+        }
+    }    
+    
+    if (s.length < 2) {
+        alert("Not enough solids to work on.");
+    }else{
+        var selNum = s.length;
+        
+        app.beginUndoGroup("solid renaming");
+        for (var i = s.length; i >= 1; i--) {//loop thru all p items
+            thisOne = s[i];
+            if ( checkIfSolid(thisOne) ) {
+                renameIt(thisOne, useAppend, dimSep);
+            }           
+        }
+        app.endUndoGroup();
+    }
+}
+
+function renameIt(pItemToChange, appendIt, dimSep) {
+    itsWidth = pItemToChange.width;
+    itsHeight = pItemToChange.height;
+    if (appendIt) {
+        pItemToChange.name = ( pItemToChange.name + "_" + itsWidth.toString() + dimSep + itsHeight.toString() );
+    }else{
+        pItemToChange.name = ( itsWidth.toString() + dimSep + itsHeight.toString() );
+    }
+}
+
+function checkIfSolid(pItem) {
+    if (pItem instanceof FootageItem) {
+        if (pItem.mainSource instanceof SolidSource ) {
+            return true;
+        }else{
+            return false;
+        }
+    }else{
+        return false;
+    }
+}` 
+
+- ANC: Heads must roll over 'alarming' VBS Mutual Bank report
+
+The ANC has welcomed a final investigation report into large-scale fraud at VBS Mutual Bank, saying heads must roll where there was any wrongdoing.
+
+The report, commissioned by the South African Reserve Bank (SARB), recommended that more than 50 individuals be criminally charged and held liable in civil proceedings, following the bank’s implosion earlier this year.
+
+This includes the bank’s former executives and their associates, shareholder executives, politicians and their relatives and auditors who signed off on the bank’s “fraudulent” financials.
+
+The report was compiled by advocate Terry Motau, who was appointed to head an investigation into the bank’s collapse.
+
+“The ‘Great Bank Heist’ report is alarming and highlights the roles of a range of individuals and institutions in these heinous events,” said ANC spokesperson Pule Mabe.
+
+READ MORE: New report backs criminal charges against VBS ‘captors’
+“The report points towards grave abuse of authority and office as well as worrying instances of corruption.”
+
+Mabe said the Reserve Bank was now expected to act decisively and with speed to process the recommendations in the report.
+
+“The ANC maintains that where there [has] been wrongdoing by individuals and institutions, heads must roll, and the law must take its cause without fear or favour. The manner in which authorities process this report, will be an important indication on our nation’s commitment to renewal and ethical leadership.”
+
+In a statement on Wednesday, the Reserve Bank said the evidence in the report was not a reflection of the innocence or guilt of any party, as not all parties had been given the opportunity to respond to the evidence.
+
+It has previously been reported that between 2015 and early 2018, when the Reserve Bank placed VBS under curatorship due to a liquidity crisis, the chair of the bank, Tshifhiwa Matodzi — together with his co-directors and ally Robert Madzonga — facilitated the looting of nearly R2-billion.
+
+Both have steadfastly maintained their innocence.
+
+The Public Investment Corporation (PIC) welcomed the report and said it had already taken a number of steps against its two delegated directors on the VBS board, Ernest Nesane and Paul Magula.
+
+PIC spokesperson Sekgoela Sekgoela said they were no longer employed there. 
+Maqula was dismissed for incompetence in April and Nesane resigned.
+
+The Financial Sector Conduct Authority debarred the men after the PIC applied in terms of the Financial Advisory and Intermediary Services Act.
+
+The PIC was in the process of applying to have them declared delinquent directors and, in consultation with the Prudential Authority, will lay criminal charges against them.
+
+With Nesane, the PIC was in the process of applying to have him struck from the roll of attorneys.
+
+Sekgoela said the report made mention of testimony to the effect that PIC CEO Daniel Matjila was to be paid a bribe of R5 million.
+
+Motau could not make any definitive finding on this but recommended further investigation by authorities.
+
+Matjila responded: “I emphatically reject any suggestion that I may have received R5 million to facilitate further funding for VBS Mutual Bank. In fact, the portfolio management committee of the PIC, turned down an application to put more money into VBS Mutual Bank, two days before VBS was placed under curatorship,” he said.
+
+“Such allegations are without merit and no facts or evidence could be placed before Advocate Motau’s panel of investigation to substantiate these allegations, which I regard as malicious. However, should an investigation be instituted into these allegations, I am willing and ready to subject myself to the process.” — Fin 24- 1014 Broadcom gets EU [antitrust](https://www.oxfordlearnersdictionaries.com/definition/english/antitrust?q=antitrust) nod/nɑːd/ for CA Technologies deal
 
 (Reuters) - Chipmaker Broadcom [Inc /ɪŋk/](https://www.oxfordlearnersdictionaries.com/definition/english/inc_2) said on Friday it has obtained antitrust clearance from the European Union for its $19-billion deal to acquire software company CA Technologies Inc.
 
