@@ -92,7 +92,15 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1015 If you would like to rename all or selected groups of your project's Solids to reflect the Solids' dimensions, use this. You can append the existing names or replace them.
+- 1015 Vitiligo
+
+Vitiligo causes white patches on your skin. It can also affect your eyes, mouth, and nose. It occurs when the cells that give your skin its color are destroyed. No one knows what destroys them. It is more common in people with autoimmune diseases, and it might run in families. It usually starts before age 40.
+
+The white patches are more common where your skin is exposed to the sun. In some cases, the patches spread. Vitiligo can cause your hair to gray early. If you have dark skin, you may lose color inside your mouth.
+
+Using sunscreen will help protect your skin, and cosmetics can cover up the patches. Treatments for vitiligo include medicines, light therapy, and surgery. Not every treatment is right for everyone. Many have side effects. Some take a long time. Some do not always work.
+
+- If you would like to rename all or selected groups of your project's Solids to reflect the Solids' dimensions, use this. You can append the existing names or replace them.
 
 ```markdown
 //'Better Solid Names" - a simple script for renaming solids in an After Effects project to show their dimensions.
