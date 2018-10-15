@@ -94,7 +94,8 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 1015 If you would like to rename all or selected groups of your project's Solids to reflect the Solids' dimensions, use this. You can append the existing names or replace them.
 
-`//'Better Solid Names" - a simple script for renaming solids in an After Effects project to show their dimensions.
+```markdown
+//'Better Solid Names" - a simple script for renaming solids in an After Effects project to show their dimensions.
 //Created by CRGreen, suggested by someone on aenhancers.com
 
 scriptVer = ".9";
@@ -184,7 +185,8 @@ function checkIfSolid(pItem) {
     }else{
         return false;
     }
-}` 
+} 
+```
 
 - ANC: Heads must roll over 'alarming' VBS Mutual Bank report
 
