@@ -106,7 +106,7 @@ On August 28, the Mail & Guardian reported that Zwane had been suspended with im
 
 “I joined NSFAS in September 2017 to make a difference with a clear turn-around strategy that included building leadership capacity, attracting the right people to the organisation and putting processes in place to streamline work-flows and technology in the NSFAS office,” Zwane said in a statement.
 
-“Some strides were made during my short tenure, but I wish the organisation and its employees well in achieving a significant mandate in the future and in the implementation of the new policy.
+“Some strides were made during my short tenure/ˈtenjər/, but I wish the organisation and its employees well in achieving a significant mandate in the future and in the implementation of the new policy.
 
 “I would like to thank the Minister of Higher Education and Training, Naledi Pandor, and the former NSFAS board for their support and guidance. 
 The broader NSFAS community, vice chancellors and student formations worked closely with me throughout the year and I appreciate their support and commitment”, Zwane said.
@@ -125,7 +125,7 @@ Ingrédients
 
 Recette pour un clafoutis aux cerises
 
-Moule à manqué de 24 cm - 500 g de cerises - 30 cl de lait - 100 g de farine - 120 g de sucre - 1 pincée de sel - 3 œufs - 60 g de beurre fondu.
+Moule à manqué de 24 cm - 500 g de cerises - 30 cl de lait - 100 g de farine - 120 g de sucre - 1 pincée de sel - 3 œufs - 60 g de beurre fondu.
 
 Préparation de la recette
 
