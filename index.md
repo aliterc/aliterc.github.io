@@ -92,7 +92,25 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1016 About XMP metadata
+- 1016 Dandruff, Cradle Cap, and Other Scalp Conditions
+
+Also called: Seborrhea, Seborrheic Dermatitis
+
+Your scalp is the skin on the top of your head. Unless you have hair loss, hair grows on your scalp. Different skin problems can affect your scalp.
+
+Dandruff is a flaking of the skin. The flakes are yellow or white. Dandruff may make your scalp feel itchy. It usually starts after puberty, and is more common in men. Dandruff is usually a symptom of seborrheic dermatitis, or seborrhea. It is a skin condition that can also cause redness and irritation of the skin.
+
+Most of the time, using a dandruff shampoo can help control your dandruff. If that does not work, contact your health care provider.
+
+There is a type of seborrheic dermatitis that babies can get. It is called cradle cap. It usually lasts a few months, and then goes away on its own. Besides the scalp, it can sometimes affect other parts of the body, such as the eyelids, armpits, groin, and ears. Normally, washing your baby's hair every day with a mild shampoo and gently rubbing their scalp with your fingers or a soft brush can help. For severe cases, your health care provider may give you a prescription shampoo or cream to use.
+
+Other problems that can affect the scalp include
+
+Scalp ringworm, a fungal infection that causes itchy, red patches on your head. It can also leave bald spots. It usually affects children.
+
+Scalp psoriasis, which causes itchy or sore patches of thick, red skin with silvery scales. About half of the people with psoriasis have it on their scalp.
+
+- About XMP metadata
 
 Metadata is—in the simplest sense—data about data. In practical terms, metadata is a set of standardized information about a file, such as author name, resolution, color space, copyright, and keywords applied to the file. For example, most cameras attach some basic information to video files, such as date, duration, and file type. Other metadata can be entered as shot-list information in OnLocation or at the capture stage in Adobe Premiere Pro. You can add additional metadata with properties such as location, author name, and copyright. Because you can share, view, and use this metadata across Adobe Creative Suite applications, you can use this information to streamline your workflow and organize your files.
 
