@@ -92,7 +92,30 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1016 Clafoutis aux cerises
+- 1016 Former NSFAS CEO Steven Zwane: 'I was not fired'
+
+Steven Zwane, former chief executive of the National Student Financial Aid Scheme (NSFAS), says he was not fired.
+
+“Contrary to certain media reports, I was not fired. I decided to resign with immediate effect because continuing with disciplinary proceedings was neither in my best interest nor in the best interest of NSFAS.”
+
+On Friday, NSFAS said in a statement that a “termination agreement” had been reached between Zwane and his employer.
+
+Zwane resigned on Friday — the first day of his disciplinary hearing.
+
+On August 28, the Mail & Guardian reported that Zwane had been suspended with immediate effect, following allegations of maladministration. This was weeks after former chairperson Sizwe Nxasana resigned.
+
+“I joined NSFAS in September 2017 to make a difference with a clear turn-around strategy that included building leadership capacity, attracting the right people to the organisation and putting processes in place to streamline work-flows and technology in the NSFAS office,” Zwane said in a statement.
+
+“Some strides were made during my short tenure, but I wish the organisation and its employees well in achieving a significant mandate in the future and in the implementation of the new policy.
+
+“I would like to thank the Minister of Higher Education and Training, Naledi Pandor, and the former NSFAS board for their support and guidance. 
+The broader NSFAS community, vice chancellors and student formations worked closely with me throughout the year and I appreciate their support and commitment”, Zwane said.
+
+“I can confirm that, following the first day of disciplinary proceedings relating to allegations of maladministration against me, a mutual agreement was reached to terminate my role as chief executive at NSFAS, effective 2 October.”
+
+All other aspects of the termination agreement are confidential between both parties, Zwane said. — News24
+
+- Clafoutis aux cerises
 
 Un clafoutis avec des cerises non dénoyautées.
 
