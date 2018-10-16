@@ -92,6 +92,44 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1016 Clafoutis aux cerises
+
+Un clafoutis avec des cerises non dénoyautées.
+
+Préparation : 10' Cuisson : 40' Facile
+
+Ingrédients  
+
+Recette pour un clafoutis aux cerises
+
+Moule à manqué de 24 cm - 500 g de cerises - 30 cl de lait - 100 g de farine - 120 g de sucre - 1 pincée de sel - 3 œufs - 60 g de beurre fondu.
+
+Préparation de la recette
+
+1 - Verser la moitié du sucre dans les cerises lavées et non dénoyautées et laisser mariner 30 minutes.
+
+2 - Casser les oeufs dans un récipient.
+
+3 - Blanchir le mélange oeufs + l'autre moitié du sucre au fouet.
+
+4 - Ajouter la farine en une fois.
+
+5 - Incorporer la farine au fouet
+
+6 - pour obtenir une texture lisse.
+
+7 - Ajouter le beurre fondu refroidi et mélanger.
+
+8 - Détendre l'appareil avec le lait.
+
+9 - Placer les cerises dans un moule adapté beurré et fariné.
+
+10 - Verser l'appareil sur les cerises.
+
+11 - L'idéal est de remplir le moule jusqu'à environ 1 cm du bord.
+
+12 - Cuire le clafoutis au four préchauffé à 180°C pendant 40 minutes.
+
 - 1015 Techniques appliquées à la cuisson des légumes
 
 Cuire/kɥiʀ/ à l'anglaise, sauter au beurre/bœʀ/, glacer, les légumes se prêtent à une multitude de cuissons.
