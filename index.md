@@ -92,7 +92,21 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1017 Recettes- Fruits à pépins- Sucre- Cuisine de saison
+- 1017 Breakingviews - China’s share-backed debt problem is a lasting one
+
+HONG KONG (Reuters Breakingviews) - China’s pledged stocks cast a long shadow. Shares have been used as collateral for some $220 billion of loans in the People’s Republic, a practice which threatens to exacerbate a nearly $2 trillion selloff this year. Beijing will step in to contain the immediate risk, but higher lending costs and moral hazard will hurt for longer.
+
+The benchmark Shanghai Composite Index, which has been falling over trade and other concerns, last week hit lows not seen in almost four years. It is now trading below levels touched during the 2015 crash, a nosedive that has revived worries over growing use of stock to back debt.
+
+Share pledges are common in China, usually among big investors in small, private Mainland companies, who use their stakes to secure loans of up to 60 percent of the value of the equity. If the stock price dips to a certain level – usually around 150 percent of the value of the principal and interest – then the borrowers face a margin call. If they fail to cough up, the shares are sold off by lenders to recoup losses.
+
+The sums involved explain the concern. According to Nomura, about 9 percent of all mainland shares were pledged in the third quarter, and the outstanding lending amount stands at about 1.5 trillion yuan ($217 billion). According to estimates published by Morgan Stanley in July, pledged loans extended by Chinese brokerages are worth more than their net capital, compared to 16 percent of that number five years ago.
+
+Regulators have already taken steps to cut the scale of borrowing, even if compliance has been patchy, and some brokerages no longer offer such loans. State intervention will certainly help limit the pain: officials have indicated they do not want to see stocks dumped. Local media reported on Saturday that the Shenzhen government was considering injecting tens of billions of yuan to reduce exactly that risk.
+
+But shoring up short-term confidence from Beijing has a cost. For one, lenders will likely increase the cost of such borrowing to account for the risk that collateral might be frozen, a move that won’t help indebted corporates or a sluggish economy. Worse, a perennial safety net encourages bad behaviour. There is enough of that around already.
+
+- Recettes- Fruits à pépins- Sucre- Cuisine de saison
 
 Pommes au four
 
