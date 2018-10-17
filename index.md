@@ -92,7 +92,69 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1018 Découper un disque de papier sulfurisé
+- 1018 ‘They have taken our beautiful sand from us and left nothing’
+
+It was with a heavy heart that Nassire Omar, a 60-year-old fisherman, moved away from his old home in the coastal village of Nagonha in northern Mozambique last year.
+
+He abandoned the village where he had lived since 2004, after it became prone to devastating floods. Altogether, 1 300 residents left Nagonha to resettle a kilometre west of the village.
+
+He said everything began to change when Haiyu Mozambique Mining, a subsidiary of China-based Hainan Haiyu Mining, was awarded a concession in 2011 to mine heavy sand minerals such as ilmenite, titanium and zircon.
+
+Like his fellow villagers, Omar blames Haiyu’s mining operations for contributing to the floods in 2015 that almost wiped out the village, destroying 48 homes and leaving 290 people homeless.
+
+According to research by Amnesty International, which documented the effect of the flooding in a report released earlier this year, Haiyu’s operations were likely to have contributed significantly to the 2015 flood.
+
+With his income as a fisherman, Omar has been able to set up a small shop, which helps to support his wife and six children. But business has suffered of late.
+
+“The company has destroyed our lives. 
+
+My business is affected. I used to sell cooked food to the fishermen. They no longer come here to buy food because my business is a little far from the ocean now,” Omar said.
+
+Satellite images of the area between December 2010 and October 2014 show the build-up of mining-related sand deposits around Nagonha. The images also reveal the gradual change in the natural flow of water.
+
+By October 2014, the satellite imagery shows that about 280 0 square metres of wetland north of the village were covered by the sand, and that the channel connecting the lagoons north of the village to the sea had been blocked.
+
+Not only did these changes to the landscape put villagers at risk of being washed into the Indian Ocean, it also meant that Nagonha’s residents were deprived of vital natural resources provided by nearby wetlands, including drinking water, medicinal plants, wild fruit, firewood and lagoons for fishing.
+
+Outraged by these losses, Omar has joined forces with other villagers to challenge irresponsible mining activities and to demand justice from the Chinese mining firm.
+
+It is a classic case of David versus Goliath, but Omar said the battle was worth fighting because the abuses are too great to be ignored.
+
+Omar said Haiyu has displayed sheer arrogance by failing to take full responsibility for its actions and exploiting the Mozambican authorities’ failure to regulate the mining industry.
+
+Amnesty International found that Haiyu did not conduct a proper environmental impact assessment or consult Nagonha’s residents prior to establishing its business, despite local legislation requiring it to do so.
+
+“The company has been mining for almost a decade. They have taken good-quality sand from here, but if you look at Nagonha, they have done nothing to improve the community where they have been mining,” Omar said.
+
+“Worse, they are not prepared to listen to us or correct their mistakes. It is regrettable that for seven years the company has been taking good sand from here and left us living in such poor conditions.”
+
+Omar said Haiyu could learn from other international mining companies operating in Mozambique or elsewhere that act responsibly. “I have seen on TV that a company that has been mining in Gaza has resettled 700 households. Here they cannot resettle 229 households?”
+
+The Chinese company has denied responsibility for the 2015 flood, citing a natural event on a scale not seen for 100 years. It rejected Amnesty International’s assertion that its operations had a negative effect on the environment.
+
+Site of a heavy sand extraction in Nagonha carried out by Haiyu
+
+Nagonha residents are among the most impoverished in the world, living below the poverty line. Many were hoping that the arrival of the mining company would improve their lives, but this never happened. Nagonha has no school, health facility or clean running water. For drinking water, residents rely on dug wells, which are easily contaminated. There is no sanitation, which means residents are vulnerable to infectious diseases such as cholera and typhoid.
+
+Omar said what they want is for Haiyu to take responsibility for its actions. “They owe us because they have taken our beautiful sand from us and left nothing. We don’t know the quantity of the sand that they took over seven years, but we know that they profited from it and we want our dues. They have taken all the riches here and left us with nothing.”
+
+Amnesty said the Mozambican authorities must immediately rectify their failure to protect the most vulnerable and ensure that the residents of Nagonha are awarded reparations, including compensation, for their losses.
+
+The government, it said, must also intervene to ensure that Haiyu’s mining operations do not pose a danger of further catastrophic flooding that could wipe Nagonha off the map.
+
+- Police make arrest after Charedi man has antisemitic abuse shouted at him on the street
+
+Officers responded to 'reports of a man shouting racial remarks'
+
+A man has been arrested after allegedly shouting antisemitic abuse at a Charedi man. 
+
+A Metropolitan Police spokesperson told the JC they were called at 11.41pm on Monday to “reports of a man shouting racial remarks” on Clapton Common in North London.
+
+The Jewish Community Council of North London published a video on Twitter, which they claim shows the abuse being thrown at the victim, Chaim Gluck.
+
+Police said a 56-year-old man was arrested on suspicion of racially aggravated public order. He was taken into custody but has since been released as police continue their investigation.
+
+- Découper un disque de papier sulfurisé
 
 Pour étuver et cuire à couvert.
 
