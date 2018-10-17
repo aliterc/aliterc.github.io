@@ -92,6 +92,38 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1018 Découper un disque de papier sulfurisé
+
+Pour étuver et cuire à couvert.
+
+Préparation : 5'
+
+Préparation de la recette
+
+1 - Commencer par découper un carré dans le papier sulfurisé.
+
+2 - Plier en deux pour obtenir un rectangle.
+
+3 - Puis à nouveau en deux pour obtenir un carré. La pointe du pliage est en bas.
+
+4 - Plier en deux encore une fois. La pointe du pliage est toujours en bas.
+
+5 - et encore une fois en gardant la pointe du pliage en bas. C'est votre point de repère.
+
+6 - Placer la pointe au centre du récipient à couvrir.
+
+7 - et découper le triangle de papier a un centimètre après le bord.
+
+8 - Couper la pointe qui formera la "cheminée" si besoin est.
+
+9 - En dépliant le papier, vous obtenez un disque à la dimension du récipient à couvrir.
+
+10 - Comme ici pour cuire un fond de tarte à blanc (sans cheminée).
+
+11 - Ou ici pour cuire des carottes primeur (avec cheminée).
+
+12 - Ou ici pour cuire des filets de sole à court mouillement.
+
 - 1017 Breakingviews - China’s share-backed debt problem is a lasting one
 
 HONG KONG (Reuters Breakingviews) - China’s pledged stocks cast a long shadow. Shares have been used as collateral for some $220 billion of loans in the People’s Republic, a practice which threatens to exacerbate a nearly $2 trillion selloff this year. Beijing will step in to contain the immediate risk, but higher lending costs and moral hazard will hurt for longer.
