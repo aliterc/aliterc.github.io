@@ -92,7 +92,47 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1017 Eye Care
+- 1017 Recettes- Fruits à pépins- Sucre- Cuisine de saison
+
+Pommes au four
+
+Appelées aussi Pommes Bonne Femme. 
+
+Préparation : 15' Cuisson : 30' Facile
+
+Ingrédients
+
+Pour cette recette de pommes au four
+
+Pommes à cuire (reinette ou boskoop) - vergeoise ou sucre - jus de citron - beurre.
+
+Préparation de la recette
+
+Un des desserts les plus simples et qui de plus embaume la cuisine. 
+
+Choisir de belles pommes reinette ou boskoop de même calibre.
+
+Nettoyer les à l'eau claire et à la brosse douce.
+
+Sécher et évider les pommes.
+
+Si la peau vous gêne éplucher les fruits et citronner généreusement pour éviter l'oxydation.
+
+Personnellement je les préfère non épluchées, elles se tiennent mieux à la cuisson.
+
+Les placer dans un plat proportionné et allant au four.
+
+Piquer la peau à différents endroits pour éviter que les pommes éclatent à la cuisson.
+
+Combler le creux central de chaque pomme avec de la vergeoise brune et une noisette de beurre.
+
+Verser dans le plat un peu de jus de citron.
+
+Cuire environ 30 mn à 170/180°C selon la taille des pommes.
+
+Servir chaud, tiède ou froid avec un peu de crème fouettée pour les plus gourmands.
+
+- Eye Care
 
 Also called: Eye health, Eye safety
 
