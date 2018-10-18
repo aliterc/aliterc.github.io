@@ -336,11 +336,11 @@ if (w.toString() == "[object Panel]") {
 ```
 - ‘They have taken our beautiful sand from us and left nothing’
 
-It was with a heavy heart that Nassire Omar, a 60-year-old fisherman, moved away from his old home in the coastal village of Nagonha in northern Mozambique last year.
+It was with a heavy heart that Nassire Omar, a 60-year-old fisherman, moved away from his old home in the coastal village of Nagonha in northern Mozambique/moʊzæmˈbiːk/ last year.
 
 He abandoned the village where he had lived since 2004, after it became prone to devastating floods. Altogether, 1 300 residents left Nagonha to resettle a kilometre west of the village.
 
-He said everything began to change when Haiyu Mozambique Mining, a subsidiary of China-based Hainan Haiyu Mining, was awarded a concession in 2011 to mine heavy sand minerals such as ilmenite, titanium and zircon.
+He said everything began to change when Haiyu Mozambique Mining, a subsidiary of China-based Hainan Haiyu Mining, was awarded a [concession](https://www.oxfordlearnersdictionaries.com/definition/english/concession?q=concession) in 2011 to mine heavy sand minerals such as ilmenite, titanium/tɪˈteɪniəm/ and zircon.
 
 Like his fellow villagers, Omar blames Haiyu’s mining operations for contributing to the floods in 2015 that almost wiped out the village, destroying 48 homes and leaving 290 people homeless.
 
@@ -348,13 +348,11 @@ According to research by Amnesty International, which documented the effect of t
 
 With his income as a fisherman, Omar has been able to set up a small shop, which helps to support his wife and six children. But business has suffered of late.
 
-“The company has destroyed our lives. 
-
-My business is affected. I used to sell cooked food to the fishermen. They no longer come here to buy food because my business is a little far from the ocean now,” Omar said.
+“The company has destroyed our lives. My business is affected. I used to sell cooked food to the fishermen. They no longer come here to buy food because my business is a little far from the ocean now,” Omar said.
 
 Satellite images of the area between December 2010 and October 2014 show the build-up of mining-related sand deposits around Nagonha. The images also reveal the gradual change in the natural flow of water.
 
-By October 2014, the satellite imagery shows that about 280 0 square metres of wetland north of the village were covered by the sand, and that the channel connecting the lagoons north of the village to the sea had been blocked.
+By October 2014, the satellite imagery shows that about 2800 square metres of wetland north of the village were covered by the sand, and that the channel connecting the lagoons/ləˈɡuːn/ north of the village to the sea had been blocked.
 
 Not only did these changes to the landscape put villagers at risk of being washed into the Indian Ocean, it also meant that Nagonha’s residents were deprived of vital natural resources provided by nearby wetlands, including drinking water, medicinal plants, wild fruit, firewood and lagoons for fishing.
 
@@ -362,9 +360,9 @@ Outraged by these losses, Omar has joined forces with other villagers to challen
 
 It is a classic case of David versus Goliath, but Omar said the battle was worth fighting because the abuses are too great to be ignored.
 
-Omar said Haiyu has displayed sheer arrogance by failing to take full responsibility for its actions and exploiting the Mozambican authorities’ failure to regulate the mining industry.
+Omar said Haiyu has displayed [sheer](https://www.oxfordlearnersdictionaries.com/definition/english/sheer_1?q=sheer) arrogance /ˈærəɡəns/ by failing to take full responsibility for its actions and exploiting the Mozambican authorities’ failure to regulate the mining industry.
 
-Amnesty International found that Haiyu did not conduct a proper environmental impact assessment or consult Nagonha’s residents prior to establishing its business, despite local legislation requiring it to do so.
+Amnesty International found that Haiyu did not conduct a proper environmental impact assessment or consult Nagonha’s residents prior/ˈpraɪər/ to establishing its business, despite local legislation requiring it to do so.
 
 “The company has been mining for almost a decade. They have taken good-quality sand from here, but if you look at Nagonha, they have done nothing to improve the community where they have been mining,” Omar said.
 
@@ -376,11 +374,11 @@ The Chinese company has denied responsibility for the 2015 flood, citing a natur
 
 Site of a heavy sand extraction in Nagonha carried out by Haiyu
 
-Nagonha residents are among the most impoverished in the world, living below the poverty line. Many were hoping that the arrival of the mining company would improve their lives, but this never happened. Nagonha has no school, health facility or clean running water. For drinking water, residents rely on dug wells, which are easily contaminated. There is no sanitation, which means residents are vulnerable to infectious diseases such as cholera and typhoid.
+Nagonha residents are among the most impoverished in the world, living below the poverty line. Many were hoping that the arrival of the mining company would improve their lives, but this never happened. Nagonha has no school, health facility or clean running water. For drinking water, residents rely on dug wells, which are easily contaminated. There is no sanitation, which means residents are vulnerable to infectious diseases such as [cholera/ˈkɑːlərə/](https://www.oxfordlearnersdictionaries.com/definition/english/cholera?q=cholera) and [typhoid](https://www.oxfordlearnersdictionaries.com/definition/english/typhoid?q=typhoid).
 
 Omar said what they want is for Haiyu to take responsibility for its actions. “They owe us because they have taken our beautiful sand from us and left nothing. We don’t know the quantity of the sand that they took over seven years, but we know that they profited from it and we want our dues. They have taken all the riches here and left us with nothing.”
 
-Amnesty said the Mozambican authorities must immediately rectify their failure to protect the most vulnerable and ensure that the residents of Nagonha are awarded reparations, including compensation, for their losses.
+Amnesty said the Mozambican authorities must immediately rectify their failure to protect the most vulnerable and ensure that the residents of Nagonha are awarded reparations/ˌrepəˈreɪʃn/ , including compensation, for their losses.
 
 The government, it said, must also intervene to ensure that Haiyu’s mining operations do not pose a danger of further catastrophic flooding that could wipe Nagonha off the map.
 
@@ -394,7 +392,7 @@ A Metropolitan Police spokesperson told the JC they were called at 11.41pm on Mo
 
 The Jewish Community Council of North London published a video on Twitter, which they claim shows the abuse being thrown at the victim, Chaim Gluck.
 
-Police said a 56-year-old man was arrested on suspicion of racially aggravated public order. He was taken into custody but has since been released as police continue their investigation.
+Police said a 56-year-old man was arrested on suspicion of racially [aggravated](https://www.oxfordlearnersdictionaries.com/definition/english/aggravated?q=aggravated) public order. He was taken into custody but has since been released as police continue their investigation.
 
 - Découper un disque de papier sulfurisé
 
