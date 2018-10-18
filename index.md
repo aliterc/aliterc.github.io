@@ -438,7 +438,7 @@ The sums involved explain the concern. According to Nomura, about 9 percent of a
 
 Regulators have already taken steps to cut the scale of borrowing, even if compliance has been patchy, and some brokerages no longer offer such loans. State intervention will certainly help limit the pain: officials have indicated they do not want to see stocks dumped. Local media reported on Saturday that the Shenzhen government was considering injecting tens of billions of yuan to reduce exactly that risk.
 
-But shoring up short-term confidence from Beijing has a cost. For one, lenders will likely increase the cost of such borrowing to account for the risk that collateral might be frozen, a move that won’t help indebted corporates or a sluggish economy. Worse, a perennial safety net encourages bad behaviour. There is enough of that around already.
+But shoring up short-term confidence from Beijing has a cost. For one, lenders will likely increase the cost of such borrowing to account for the risk that collateral might be frozen, a move that won’t help indebted corporates or a sluggish economy. Worse, a perennial safety net encourages bad behaviour. There is enough of that around already. [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/EB%201017.m4a)
 
 - Recettes- Fruits à pépins- Sucre- Cuisine de saison
 
