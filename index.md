@@ -92,7 +92,67 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1018 About Move Actions
+- 1018 RENDERING
+
+ZBrush provides several ways to render both 2D and 3D work. The finished render can be saved to a file by pressing the Document > Export button. For a BPR render there are additional options for saving render passes that can then be composited in an image editing program (for details see the BPR pages).
+
+Render modes
+
+Preview
+
+The default renderer, used when composing a scene or sculpting. It will show most properties of the scene including Preview Shadows but excluding Light palette shadows, complex fog, light colors, depth cue and some material and other effects. It does show transparency, but the Best renderer is significantly better in most situations.
+
+Best
+
+Used for the final render for 2D work, the Best Renderer uses the best (and slowest) methods to produce the highest quality image. Shadows for 2D work must be rendered using this renderer.
+
+If you try to work in the Best renderer mode, ZBrush will automatically switch to the Preview Renderer. There’s one exception to this; if you have a floating object in the scene, you can make changes to its material properties and the Best Renderer will re-render only the object and its bounding box.
+
+Important!
+
+The BPR (see below) is the best option for 3D models, however some materials effects require the use of the Best renderer. Best and BPR renders can be combined by first completing a Best render and immediately following it with a BPR.
+
+Fast
+
+The fast renderer does not render materials, only basic shading. This makes it ideal for modeling, since it is very fast and shows surface details due to geometry, not materials.
+
+Flat
+
+Allows you to see the scene with no shading, just basic color. This can be useful for checking texture maps.
+
+Best Preview Renderer (BPR)
+
+The Best Preview Renderer (or BPR) is for 3D work only. The BPR will render a 3D model in Edit mode using high quality anti-aliasing at the full document size. For full details see the BPR page.
+
+AA Half option
+
+The Antialiased Half-size button in the Document palette will set the zoom factor for the canvas to exactly half its size. ZBrush treats this scale factor in a special manner; when the zoom factor is exactly 50%, the canvas contents are antialiased, which reduces the “jagged” effect that can appear along edges in a computer-generated image.
+
+A common method of working with ZBrush for 2D work is to create and draw your document at double its intended size, and then to use this button to display the antialiased version at the “final” size. The Document > Export button can then be used to export the smaller, antialiased version of your work.
+
+For 3D models in Edit mode and using BPR, antialiasing is performed by the renderer and use of AA Half is not necessary
+
+Image Resolution
+
+When rendering images for print it is often a requirement that the image is of a specific resolution, for example, 300 ppi for top quality magazine or book images. ZBrush does not have a way to specify the resolution of an image – all images are rendered at their exact pixel dimensions (though note AA Half above). In order to render an image of the right size for a particular resolution you need to calculate the pixel dimensions. The simplest way to do this is to set up a blank file in an image editor like Photoshop and then note down the Image Size height and width in pixels.
+
+In ZBrush you then need to resize the document in the Document palette. Note that you should set up the right size of document before starting a 2D illustration.
+
+Turn off Edit mode and clear the canvas
+
+Turn off the Pro switch in the Document palette
+
+Set the Width and Height sliders to the pixel values you want
+
+Press Resize
+
+The canvas will be resized to the new dimensions. When you export a render it will be the right pixel dimensions and you can specify the resolution in Photoshop if you want.
+
+Saving the Render to a file
+
+To save a render simply press the Document > Export button and choose a file name and extension. Images can be saved in a variety of formats.
+
+- About Move Actions
 
 Move actions move selected objects a specified distance and angle.
 
