@@ -92,7 +92,35 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1018 A simple random layer activator. Turns layers off and on randomly. Features: UI includes "weight slider" and choice to either keep all your originally-selected layers selected or to change the selection to just the layers left on.
+- 1018 About Move Actions
+
+Move actions move selected objects a specified distance and angle.
+
+Apply a Move Action to a Point Parameter
+
+A move action associated with a point parameter moves all objects in a selection set in any direction. The point parameter is the location of the grip for the move action in the block reference.
+
+![img](http://help.autodesk.com/cloudhelp/2018/ENU/AutoCAD-Core/images/GUID-586FEB01-4E0F-4E2C-AE31-ABF5558C9C16.png)
+
+Apply a Move Action to a Linear Parameter
+
+A move action associated with a linear parameter moves all objects in a selection set only in the direction of the linear parameter. The parameter key point is the location of the grip in the block reference.
+
+![img](http://help.autodesk.com/cloudhelp/2018/ENU/AutoCAD-Core/images/GUID-D87B7D6F-ED84-4215-8CE8-29FA5BA62649.png)
+
+Apply a Move Action to a Polar Parameter
+
+A move action associated with a polar parameter moves all objects in a selection set in any direction. In the block reference, the parameter key point is
+
+The location of the move grip
+
+The offset distance from the selected objects
+
+Applying a move action to a polar parameter gives the same result as applying a move action to a point parameter.
+
+![img](http://help.autodesk.com/cloudhelp/2018/ENU/AutoCAD-Core/images/GUID-E2993995-79C6-4C0F-B129-A63BFF8E8F59.png)
+
+- A simple random layer activator. Turns layers off and on randomly. Features: UI includes "weight slider" and choice to either keep all your originally-selected layers selected or to change the selection to just the layers left on.
 
 ```markdown
 //Randomly Enabled Selected Layers, by crgreen.
