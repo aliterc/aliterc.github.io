@@ -92,7 +92,92 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1018 RENDERING
+- 1018 Marking Menus
+
+You can quickly access many of your most commonly used tools with marking menus.
+
+Marking menus are used throughout the Maya interface. When you right-click an object, a marking menu appears that lets you select a selection mode and other actions that are in context to the type of object. Some marking menus appear when you hold a key and press a mouse button.
+
+Marking menus are very fast for experienced users because once you get used to showing them and the positions of their items, you can select the items using very quick gestures with the mouse or tablet pen, sometimes so fast the entire menu won’t even display.
+
+To select an item from a marking menu
+
+Do one of the following:
+
+Right-click anywhere in your scene when an object is selected, and release the mouse button.
+The marking menu remains on the screen, letting you move your cursor over the item you want to select.
+
+Right-click anywhere in your scene when an object is selected and continue holding your mouse button and drag in the direction of the item you want to select. It doesn't matter how far you drag or if you hit the item exactly. This allows you to make the drag very quickly. Dragging over an item with a submenu attached shows the submenu.
+
+![img](http://help.autodesk.com/cloudhelp/2018/ENU/Maya-Basics/images/GUID-411DFA9A-FC6F-4485-8083-5E6A6B831EA6.png)
+
+Note: You can assign marking menus to hotkeys. Hold the key and press the mouse button to show the marking menu.
+
+Polygon / NURBS marking menus
+
+Right-clicking a polygon or NURBS object in the scene brings up a marking menu of many commonly used commands.
+
+Menu Item: Effect
+
+Components: The upper radial section of each object type displays options to change the current component selection mode for that object.Note: Objects remain selected even when switching between various object and component modes.
+
+Shape node: Allows you to display the appropriate object's shape node without changing the current selection.
+
+Select: Selects the current object.
+
+Select All: Selects all objects in the scene.
+
+Deselect All: Clears the current selection.
+
+Select Hierarchy: Selects the current object and anything under it in the DAG.
+
+Invert Selection: Selects anything currently unselected in the DAG and vice versa.
+
+Select Similar: When in component mode, Select Similar selects polygonal components (vertices, edges, and faces) of a similar type to the current selection. When in object mode, this option selects other objects of the same node type in the scene.
+
+Make Live: Turns the current object into a Live surface that other objects will then automatically snap to.
+
+DG Traversal: Allows you to navigate up and down the DG into the current object's History (upstream) and Future (downstream) without having to open the Node Editor.
+
+Inputs: Allows you to select and edit any / all input (upstream) connections to the current object's shape node.
+
+Outputs: Allows you to select and edit any / all output (downstream) connections to the current object's shape node.
+
+Paint: Provides quick access to multiple paint modes, including: Paint Select, 3D Paint, Sculpt Geometry, and Vertex Color painting (not available for NURBS curves).
+
+Metadata: Allows you to visualize and modify metadata associated with the current object.
+
+Actions: Provides quick access to Templating, (controlling the object's selectability), Unparenting (down to the root level), and Bounding Box display actions.
+
+UV Sets: Provides quick access to options related to an object's (possibly) multiple UV sets (polygons only).
+
+Color Sets: Provides quick access to options related to an object's (possibly) multiple color sets (polygons only).
+
+Scene Assembly: Provides quick access to various options related to Scene Assembly for creating large complex scenes.
+
+Material Attributes: Opens the current object's shader node in the Attribute Editor.
+
+Assign New Material: Opens the Assign New Material window.
+
+Assign Favorite Material: Allows you to assign commonly used shaders based on your Favorite list in the Hypershade. to the current object.
+
+Assign Existing Material: Allows you to assign the current object any shader that already exists in the scene.
+
+Remove Material Override: Removes any material overrides created on a render layer, reverting back to the master layer's material shader.
+
+Convert Selection marking menus
+
+Ctrl + right-clicking an object provides a menu of selection conversion commands that mirror those found in the Select > Convert Selection menu as well as Contiguous Edges. The available options differ depending on the current object type. See Change one type of selection to another.
+
+Create Polygon marking menus
+
+Shift + right-clicking the scene without a selection provides a menu of polygon primitives and creation tools.
+
+Polygon Tools marking menus
+
+Shift + right-clicking with a polygon object selected brings up a marking menu of many commonly used polygon tools.
+
+- RENDERING
 
 ZBrush provides several ways to render both 2D and 3D work. The finished render can be saved to a file by pressing the Document > Export button. For a BPR render there are additional options for saving render passes that can then be composited in an image editing program (for details see the BPR pages).
 
