@@ -392,7 +392,7 @@ A Metropolitan Police spokesperson told the JC they were called at 11.41pm on Mo
 
 The Jewish Community Council of North London published a video on Twitter, which they claim shows the abuse being thrown at the victim, Chaim Gluck.
 
-Police said a 56-year-old man was arrested on suspicion of racially [aggravated](https://www.oxfordlearnersdictionaries.com/definition/english/aggravated?q=aggravated) public order. He was taken into custody but has since been released as police continue their investigation.
+Police said a 56-year-old man was arrested on suspicion of racially [aggravated](https://www.oxfordlearnersdictionaries.com/definition/english/aggravated?q=aggravated) public order. He was taken into custody but has since been released as police continue their investigation. [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/EB%201018.m4a)
 
 - Découper un disque de papier sulfurisé
 
