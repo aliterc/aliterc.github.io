@@ -92,7 +92,76 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1018 ‘They have taken our beautiful sand from us and left nothing’
+- 1018 A simple random layer activator. Turns layers off and on randomly. Features: UI includes "weight slider" and choice to either keep all your originally-selected layers selected or to change the selection to just the layers left on.
+
+```markdown
+//Randomly Enabled Selected Layers, by crgreen.
+
+//globals:
+var scriptVer = "1.1";
+var wt = 50.0;
+var keepSel = true;
+
+function doRando(winObj){
+    var alertMsg = "";
+    var activeItem = app.project.activeItem;
+    if (activeItem == null || !(activeItem instanceof CompItem)){
+        alert("You need to select some layers first.");
+    } else {
+        var selectedLayers = activeItem.selectedLayers;
+        var selNum = activeItem.selectedLayers.length;
+        if (selNum == 0) {
+            alert("No layers selected.");
+        } else {
+            app.beginUndoGroup("Layer On Randomization");
+            winObj.randoBttn.text = "Wait ... "
+            winObj.randoBttn.enabled = false;
+            for (var la = (selNum-1); la >= 0; la--) {//working backwards here.
+                var rando=(Math.floor( Math.random() * 100)+1);
+                var bool=true;
+                if (rando<=wt) {bool=false;}
+                currLayer = selectedLayers[la];
+                currLayer.enabled = bool;
+                if (!keepSel) {currLayer.selected = bool;}
+            }
+            winObj.randoBttn.text = "Randomize"
+            winObj.randoBttn.enabled = true;
+            app.endUndoGroup();
+        }
+    }
+}
+
+function buildUI(this_obj_) {
+    var win = (this_obj_ instanceof Panel)
+    ? this_obj_
+    : new Window('palette', 'crgreen.com Randomize Selected Layers (v' + scriptVer + ')',[237,170,708,290]);
+    
+    win.theSlider = win.add('slider', [22,32,449,65], 50, 0, 100);
+    
+    win.theSlider.onChange = function () { wt=(win.theSlider.value);}
+    
+    win.ctl_label4 = win.add('statictext', [22,18,449,38], '(on)                                              Weight                                              (off)');
+    win.ctl_label4.justify = 'center';
+    
+    win.selAllBttn = win.add('checkbox', [47,74,146,100], 'Keep Selection');
+    win.selAllBttn.value = keepSel;
+    win.selAllBttn.onClick = function () { keepSel = win.selAllBttn.value; }
+    
+    win.randoBttn = win.add('button', [174,74,314,100], 'Randomize');
+    win.closeBttn = win.add('button', [340,74,410,100], 'Close');
+    win.closeBttn.onClick = function () { this.parent.close(1) ;}
+    win.randoBttn.onClick = function () { doRando(win) ;}
+    
+    return win
+}
+var w = buildUI(this);
+if (w.toString() == "[object Panel]") {
+    w;
+} else {
+    w.show();
+}
+```
+- ‘They have taken our beautiful sand from us and left nothing’
 
 It was with a heavy heart that Nassire Omar, a 60-year-old fisherman, moved away from his old home in the coastal village of Nagonha in northern Mozambique last year.
 
