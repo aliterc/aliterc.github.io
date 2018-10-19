@@ -92,6 +92,88 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1019 Anal fissure
+
+An anal fissure is a small split or tear in the thin moist tissue (mucosa) lining the lower rectum (anus).
+
+Causes
+
+Anal fissures are very common in infants, but they may occur at any age.
+
+In adults, fissures may be caused by passing large, hard stools, or having diarrhea for a long time. Other factors may include:
+
+Decreased blood flow to the area
+
+Too much tension in the sphincter muscles that control the anus
+
+The condition affects males and females equally. Anal fissures are also common in women after childbirth and in people with Crohn disease.
+
+Symptoms
+
+Anal fissures may cause painful bowel movements and bleeding. There may be blood on the outside of the stool or on the toilet paper (or baby wipes) after a bowel movement.
+
+Symptoms may begin suddenly or develop slowly over time.
+
+Other symptoms may include:
+
+A crack in the anal skin that can be seen when the area is stretched slightly (the fissure is almost always in the middle)
+
+Constipation
+
+Exams and Tests
+
+The health care provider will perform a rectal exam and look at the anal tissue. Other medical tests that may be done include:
+
+Anoscopy -- examination of the anus, anal canal, and lower rectum
+
+Sigmoidoscopy -- examination of the lower part of large intestine
+
+Biopsy -- removal of rectal tissue for examination
+
+Colonoscopy -- examination of the colon
+
+Treatment
+
+Most fissures heal on their own and do not need treatment.
+
+To prevent or treat anal fissures in infants, be sure to change diapers often and clean the area gently.
+
+CHILDREN AND ADULTS
+
+Worrying about pain during a bowel movement may cause a person to avoid them. But not having bowel movements will only cause the stools to become even harder, which can make anal fissure worse.
+
+Prevent hard stools and constipation by:
+
+Making dietary changes -- eating more fiber or bulk, such as fruits, vegetables, and grains
+
+Drinking more fluids
+
+Using stool softeners
+
+Ask your provider about the following ointments or creams to help soothe the affected skin:
+
+Numbing cream, if pain interferes with normal bowel movements
+
+Petroleum jelly
+
+Zinc oxide, 1% hydrocortisone cream, Preparation H, and other products
+
+A sitz bath is a warm water bath used for healing or cleansing. Sit in the bath 2 to 3 times a day. The water should cover only the hips and buttocks.
+
+If the anal fissures do not go away with home care methods, treatment may involve:
+
+Botox injections into the muscle in the anus (anal sphincter)
+
+Minor surgery to relax the anal muscle
+
+Prescription creams such as nitrates or calcium channel blockers, applied over the fissure to help relax the muscles
+
+Outlook (Prognosis)
+
+Anal fissures often heal quickly without any more problems.
+
+People who develop fissures once are more likely to have them in the future.
+
 - 1018 Marking Menus
 
 You can quickly access many of your most commonly used tools with marking menus.
