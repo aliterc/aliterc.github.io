@@ -92,7 +92,19 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1019 Anal fissure
+- 1019 What you need to know about SA’s historic liver transplant from an HIV-positive donor
+
+South Africa’s done it again. Last week, surgeons from the Wits Donald Gordon Medical Centre became the first in the world to transplant a liver from a donor living with HIV.
+
+In doing so, an HIV-positive mother was able to save the life of her HIV-negative baby — and make history.
+
+Historically, people living with HIV have been banned from donating organs because the virus can be transmitted via donated tissue. Transplants were also thought to pose a risk to the health of donors living with the virus.
+
+So far, doctors can’t say for sure if the baby — now a healthy, 13-month-old toddler — contracted HIV because of the procedure or not. Preliminary tests haven’t been able to say conclusively. As a precaution, the baby is still on HIV treatment and doctors say they still aren’t sure when — or if — the child will stop taking antiretrovirals (ARVs).
+
+Still confused? Experts from Wits University and its Donald Gordon Medical Centre as well as the National Institute For Communicable Diseases have the answers.
+
+- Anal fissure
 
 An anal fissure is a small split or tear in the thin moist tissue (mucosa) lining the lower rectum (anus).
 
