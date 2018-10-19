@@ -92,6 +92,38 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1020 Rugby Union-Hartley and Farrell perfect fit as co-captains, says Jones
+
+LONDON, Oct 18 (Reuters) - England coach Eddie Jones said his decision to make Dylan Hartley and Owen Farrell co-captains for the November tests was “almost a no-brainer” though his idea that they will take the field holding hands is one of his less likely predictions.
+
+Jones made Hartley his captain in one of his first acts after taking over as head coach and has been a staunch supporter of the hooker during England’s superb winning run and subsequent struggles.
+
+With Hartley ruled out of this year’s South Africa tour with concussion issues, Farrell, a natural leader on the pitch throughout his career, took over the job seamlessly.
+
+Now the two men will officially share the duties in a move that Jones does not see as particularly ground-breaking.
+
+“To me it almost became a no-brainer,” he said after announcing his squad for the games against South Africa, New Zealand, Japan and Australia.
+
+“Having watched Dylan captain the side for so many tests and then watching Owen in South Africa, the combination of those two together is just a great fit and whatever team I’ve coached where we’ve had success you’ve always had two at the top and traditionally they’ve been called a captain and a vice-captain, but I see the role as being co-captains.
+
+“Dylan will handle certain things on the field, Owen will handle certain things, the things that come natural to him, and then off the field we’ve got a great combination because Dylan’s a bit older, Owen’s younger and that combination of looking after responsibilities off the field will work well.”
+
+Asked who would take on the traditional captain’s roles on matchday, Jones said: “They’ll hold hands when they run out. Dylan is always next to the referee so it’s natural for him to speak to the referee. When there’s a penalty they have a discussion about what to do — they’ll work it out, it’s a very natural situation.
+
+“We’ll use it in November and if it’s right going forward, we’ll take it right through to the World Cup.”
+
+Jones added that his decision was partly based on the off-field demands.
+
+“In England the job of the captain is probably the biggest job in the world,” he said. “In most of the world you do the press conference which is one little gathering of five or six people for about five minutes and then you’re done.
+
+“Here it’s two hours of non-stop questioning and it’s the same for the captain and I want to make sure it doesn’t overburden them in their own preparation.”
+
+Jones said he had a similar set-up, if not in name, during his time coaching Australia.
+
+“We had John Eales as captain and George Gregan as vice-captain,” he said. “Who spoke to the referee more? George Gregan. Who was more influential in the team? George Gregan. Who was one of the greatest captains of all time? John Eales.
+
+“The combination of those two together was enormously powerful and I see Owen and Dylan being able to create that same leadership power — of being able to galvanise the team on and off the field together.” 
+
 - 1019 What you need to know about SA’s historic liver transplant from an HIV-positive donor
 
 South Africa’s done it again. Last week, surgeons from the Wits Donald Gordon Medical Centre became the first in the world to transplant a liver from a donor living with HIV.
