@@ -92,7 +92,73 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1021 Resolve conflicts
+- 1021 Black 'lynching' ad illustrates race overtones, anger in U.S. campaign ads
+
+NEW YORK (Reuters) - Many political ads in this year’s U.S. elections pack an unusually harsh and personal punch - some with racial overtones.
+
+In Arkansas, a radio ad this week suggests white Democrats might start lynching black men. In New York, a congressman’s supporters drew attention to his black rival’s history as a rapper. In California, Ohio and Virginia, candidates and their supporters cast their opponents as terrorists. In Pennsylvania, a Republican state senator threatened to “stomp all over” his Democratic rival’s face with golf spikes.
+
+And in Arizona, a lawmaker’s six siblings urged voters not to re-elect their Republican brother.
+
+While angry advertisements are a longstanding feature of U.S. politics, many ads this year made little effort to disguise their candidates’ rage, a vivid illustration of what many experts see as a coarsening of public dialogue since President Donald Trump shook up American politics.
+
+Heavy spending for a non-presidential election cycle and the speed with which ads are spreading online is magnifying the effect. Political spending on television spots is up 19 percent from 2014, the last U.S. congressional midterm election cycle, to $2.9 billion - levels closer to spending for a presidential election, according to MAGNA, an arm of advertising agency IPG Mediabrands.
+
+“As the amount of money in campaigns increases I think the volume of negative ads is increasing,” said Nathan Gonzales of Inside Elections, a nonpartisan campaign analysis group.
+
+A radio ad that aired this week in Arkansas in support of Republican U.S. Representative French Hill featured women with exaggerated and stereotyped African-American accents saying black voters should support Hill and Republicans because Democrats will lynch black men when “a white girl screams rape.”
+
+Hill’s campaign did not run the ad and condemned it as “outrageous.” Hill and his Democratic opponent, Clarke Tucker, are both white.
+
+TIED TO KAVANAUGH HEARING
+
+The ad cites the accusation that Supreme Court Justice Brett Kavanaugh sexually assaulted a 15-year-old girl when he was a 17-year-old high school student. Kavanaugh denied the accusation, which dominated the final days of his Senate confirmation and which prompted Republicans to say Democrats had abandoned the idea of presumption of innocence.
+
+In the ad, a woman says “white Democrats will be lynching black folk again.”
+
+“We have to protect our men and boys,” the woman says. “We can’t afford to let white Democrats take us back to bad old days of race verdicts, life sentences and lynchings when a white girl screams rape.”
+
+Bruce Bartlett, a senior policy adviser in the Republican administrations of Ronald Reagan and George H.W. Bush, called it “the most racist ad by a Republican I have ever come across.”
+
+Vernon Robinson of Black Americans for the President’s Agenda, a political action committee, produced the ads. He defended them in a Friday telephone interview and said they will run through the elections.
+
+“I could not believe the lunatic fringe of the Democratic Party was pushing the presumption of guilt on the accused,” Robinson told Reuters, referring to the Kavanaugh hearings, which did not have a racial aspect. “This is a serious threat to black men and the women who love them.”
+
+Malik Russell, a spokesman for the NAACP civil rights group, called the ad “one of the worst examples of racist ignorance and historic misappropriation.” He blamed Trump for setting the tone.
+
+“The racism, hateful and disrespectful rhetoric targeting immigrants, women and communities of color coming from the White House has served as a powerful enabler to those around the nation who support white supremacy,” Russell said.
+
+The shift in tone comes as Democrats are fighting for majorities in the U.S. House of Representatives and Senate, which would give them more power to oppose the Republican president’s agenda.
+
+Opinion polls generally show Democrats with a strong chance of gaining the 23 House seats they need to take a majority, with a harder battle to pick up the two seats they would need for a Senate majority in the Nov. 6 elections.
+
+That partly explains the preponderance of negative television ads in the Senate races - with half the ads running from Sept. 4 through Oct. 1 taking a negative tone, according to an analysis by the Wesleyan Media Project, which tracks political advertising. More than the 40.8 percent of House ads and 43.2 percent of governors’ ads took a negative tone, according to the study.
+
+NEGATIVE REPUBLICAN ADS
+
+It found that more than a third of Republican TV ads for Senate and House races were negative, which it defined as ads that solely focus on a candidate’s rival.
+
+That is sharply higher than the 18.3 percent of Democratic Senate ads and 14.1 percent of Democratic House ads that were negative in tone. It also represented a switch from 2014, when ads by Democrats were substantially more negative than those by Republicans.
+
+Other 2018 election ads came in for criticism for threatening violence or perceived xenophobia.
+
+Scott Wagner, a Republican challenging Democratic incumbent Tom Wolf for governor of Pennsylvania, threatened his rival with the “golf spikes” ad. Polls show Wolf has a wide lead.
+
+“Governor Wolf, let me tell you what, between now and Nov. 6, you’d better put a catcher’s mask on your face because I’m going to stomp all over your face with golf spikes,” Wagner said in the video.
+
+Wagner later took the ad down amid criticism from national Republican leaders, saying he had “chosen a poor metaphor.”
+
+New York Republican Representative John Faso has repeatedly run spots against his Democratic challenger, a black former Rhodes scholar and Harvard-educated lawyer, highlighting offensive language Antonio Delgado used as a young aspiring rapper.
+
+Delgado responded by saying his past lyrics were taken out of context in an attempt to “otherize” him from voters in one of the whitest districts of the state.
+
+California Republican Representative Duncan Hunter ran a spot accusing his challenger, Ammar Campa-Najjar, of trying “to hide his family’s ties to terrorism.” The ad focuses on his heritage – his mother is Mexican-American and his father is Palestinian. It calls him a “Palestinian, Mexican, millennial Democrat” who is funded by “the Muslim Brotherhood” and a “security risk.”
+
+Campa-Najjar worked in President Barack Obama’s White House and later in the Department of Labor - jobs that require security clearance. Although his Palestinian grandfather, Muhammad Yusuf al-Najjar, was accused by Israel of being involved in the 1972 massacre of Israeli athletes at the Munich Olympics, Campa-Najjar was born 16 years after Yusuf al-Najjar died.
+
+Democratic candidates for Congress in Ohio and California have been similarly labeled for their respective work at a law firm that once handled lawsuits involving Libya and for having been a substitute English teacher at a Muslim high school.
+
+- Resolve conflicts
 
 When multiple collaborators simultaneously work on a team project, it is possible that some of your edited assets conflict with their versions shared by another collaborator. If you attempt to share your changes in that situation, team projects display a conflict resolution dialog box with the following options:
 
