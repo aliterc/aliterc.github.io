@@ -122,7 +122,7 @@ Jones said he had a similar set-up, if not in name, during his time coaching Aus
 
 “We had John [Eales](https://www.pronouncenames.com/pronounce/Eales) as captain and George Gregan as vice-captain,” he said. “Who spoke to the referee more? George Gregan. Who was more influential in the team? George Gregan. Who was one of the greatest captains of all time? John Eales.
 
-“The combination of those two together was enormously powerful and I see Owen and Dylan being able to create that same leadership power — of being able to [galvanise](https://www.oxfordlearnersdictionaries.com/definition/english/galvanize#galvanize__16) the team on and off the field together.” 
+“The combination of those two together was enormously powerful and I see Owen and Dylan being able to create that same leadership power — of being able to [galvanise](https://www.oxfordlearnersdictionaries.com/definition/english/galvanize#galvanize__16) the team on and off the field together.” [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/EB1020.m4a)
 
 - 1019 What you need to know about SA’s historic liver transplant from an HIV-positive donor
 
