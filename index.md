@@ -92,6 +92,20 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1021 Resolve conflicts
+
+When multiple collaborators simultaneously work on a team project, it is possible that some of your edited assets conflict with their versions shared by another collaborator. If you attempt to share your changes in that situation, team projects display a conflict resolution dialog box with the following options:
+
+You can [retain](https://www.oxfordlearnersdictionaries.com/definition/english/retain?q=retain) your version.
+
+You can retain the shared version.
+
+You can copy and rename your version before accepting the shared version.
+
+You can also decide to individually or collectively resolve all conflicts.
+
+![img](https://helpx.adobe.com/content/dam/help/en/team-projects/using/share-and-manage-changes-with-team-projects/_jcr_content/main-pars/image/11.jpg)
+
 - 1020 Rugby Union-Hartley and [Farrell](https://www.pronouncenames.com/search?name=Farrell) perfect fit as co-captains, says Jones
 
 LONDON, Oct 18 (Reuters) - England coach Eddie Jones said his decision to make Dylan Hartley and Owen Farrell co-captains for the November tests was “almost a no-brainer” though his idea that they will take the field holding hands is one of his less likely predictions.
