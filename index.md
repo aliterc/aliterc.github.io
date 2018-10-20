@@ -92,13 +92,13 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1020 Rugby Union-Hartley and Farrell perfect fit as co-captains, says Jones
+- 1020 Rugby Union-Hartley and [Farrell](https://www.pronouncenames.com/search?name=Farrell) perfect fit as co-captains, says Jones
 
 LONDON, Oct 18 (Reuters) - England coach Eddie Jones said his decision to make Dylan Hartley and Owen Farrell co-captains for the November tests was “almost a no-brainer” though his idea that they will take the field holding hands is one of his less likely predictions.
 
-Jones made Hartley his captain in one of his first acts after taking over as head coach and has been a staunch supporter of the hooker during England’s superb winning run and subsequent struggles.
+Jones made Hartley his captain in one of his first acts after taking over as head coach and has been a [staunch](https://www.oxfordlearnersdictionaries.com/definition/english/staunch_1?q=staunch) supporter of the hooker during England’s superb winning run and subsequent struggles.
 
-With Hartley ruled out of this year’s South Africa tour with concussion issues, Farrell, a natural leader on the pitch throughout his career, took over the job seamlessly.
+With Hartley ruled out of this year’s South Africa tour with [concussion](https://www.oxfordlearnersdictionaries.com/definition/english/concussion?q=concussion) issues, Farrell, a natural leader on the pitch throughout his career, took over the job seamlessly.
 
 Now the two men will officially share the duties in a move that Jones does not see as particularly ground-breaking.
 
@@ -120,9 +120,9 @@ Jones added that his decision was partly based on the off-field demands.
 
 Jones said he had a similar set-up, if not in name, during his time coaching Australia.
 
-“We had John Eales as captain and George Gregan as vice-captain,” he said. “Who spoke to the referee more? George Gregan. Who was more influential in the team? George Gregan. Who was one of the greatest captains of all time? John Eales.
+“We had John [Eales](https://www.pronouncenames.com/pronounce/Eales) as captain and George Gregan as vice-captain,” he said. “Who spoke to the referee more? George Gregan. Who was more influential in the team? George Gregan. Who was one of the greatest captains of all time? John Eales.
 
-“The combination of those two together was enormously powerful and I see Owen and Dylan being able to create that same leadership power — of being able to galvanise the team on and off the field together.” 
+“The combination of those two together was enormously powerful and I see Owen and Dylan being able to create that same leadership power — of being able to [galvanise](https://www.oxfordlearnersdictionaries.com/definition/english/galvanize#galvanize__16) the team on and off the field together.” 
 
 - 1019 What you need to know about SA’s historic liver transplant from an HIV-positive donor
 
