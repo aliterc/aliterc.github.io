@@ -96,15 +96,15 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 NEW YORK (Reuters) - Many political ads in this year’s U.S. elections pack an unusually harsh and personal punch - some with racial overtones.
 
-In Arkansas, a radio ad this week suggests white Democrats might start lynching black men. In New York, a congressman’s supporters drew attention to his black rival’s history as a rapper. In California, Ohio and Virginia, candidates and their supporters cast their opponents as terrorists. In Pennsylvania, a Republican state senator threatened to “stomp all over” his Democratic rival’s face with golf spikes.
+In Arkansas, a radio ad this week suggests white Democrats might start lynching black men. In New York, a congressman’s supporters drew attention to his black rival’s history as a rapper. In California, Ohio and Virginia, candidates and their supporters cast their opponents as terrorists. In Pennsylvania, a Republican state senator threatened to “stomp/stɑːmp/ all over” his Democratic rival’s face with golf spikes.
 
 And in Arizona, a lawmaker’s six siblings urged voters not to re-elect their Republican brother.
 
-While angry advertisements are a longstanding feature of U.S. politics, many ads this year made little effort to disguise their candidates’ rage, a vivid illustration of what many experts see as a coarsening of public dialogue since President Donald Trump shook up American politics.
+While angry advertisements are a longstanding feature of U.S. politics, many ads this year made little effort to disguise their candidates’ rage, a vivid illustration of what many experts see as a [coarsening](https://www.oxfordlearnersdictionaries.com/definition/english/coarsen#coarsen__11) of public dialogue since President Donald Trump shook up American politics.
 
 Heavy spending for a non-presidential election cycle and the speed with which ads are spreading online is magnifying the effect. Political spending on television spots is up 19 percent from 2014, the last U.S. congressional midterm election cycle, to $2.9 billion - levels closer to spending for a presidential election, according to MAGNA, an arm of advertising agency IPG Mediabrands.
 
-“As the amount of money in campaigns increases I think the volume of negative ads is increasing,” said Nathan Gonzales of Inside Elections, a nonpartisan campaign analysis group.
+“As the amount of money in campaigns increases I think the volume of negative ads is increasing,” said Nathan Gonzales of Inside Elections, a nonpartisan /ˌnɑːn ˈpɑːrtəzn/ campaign analysis group.
 
 A radio ad that aired this week in Arkansas in support of Republican U.S. Representative French Hill featured women with exaggerated and stereotyped African-American accents saying black voters should support Hill and Republicans because Democrats will lynch black men when “a white girl screams rape.”
 
@@ -122,11 +122,11 @@ Bruce Bartlett, a senior policy adviser in the Republican administrations of Ron
 
 Vernon Robinson of Black Americans for the President’s Agenda, a political action committee, produced the ads. He defended them in a Friday telephone interview and said they will run through the elections.
 
-“I could not believe the lunatic fringe of the Democratic Party was pushing the presumption of guilt on the accused,” Robinson told Reuters, referring to the Kavanaugh hearings, which did not have a racial aspect. “This is a serious threat to black men and the women who love them.”
+“I could not believe the lunatic [fringe](https://www.oxfordlearnersdictionaries.com/definition/english/fringe_1?q=fringe) of the Democratic Party was pushing the presumption of guilt on the accused,” Robinson told Reuters, referring to the Kavanaugh hearings, which did not have a racial aspect. “This is a serious threat to black men and the women who love them.”
 
 Malik Russell, a spokesman for the NAACP civil rights group, called the ad “one of the worst examples of racist ignorance and historic misappropriation.” He blamed Trump for setting the tone.
 
-“The racism, hateful and disrespectful rhetoric targeting immigrants, women and communities of color coming from the White House has served as a powerful enabler to those around the nation who support white supremacy,” Russell said.
+“The racism, hateful and disrespectful [rhetoric](https://www.oxfordlearnersdictionaries.com/definition/english/rhetoric?q=rhetoric) targeting immigrants, women and communities of color coming from the White House has served as a powerful enabler to those around the nation who support white supremacy,” Russell said.
 
 The shift in tone comes as Democrats are fighting for majorities in the U.S. House of Representatives and Senate, which would give them more power to oppose the Republican president’s agenda.
 
@@ -140,21 +140,21 @@ It found that more than a third of Republican TV ads for Senate and House races 
 
 That is sharply higher than the 18.3 percent of Democratic Senate ads and 14.1 percent of Democratic House ads that were negative in tone. It also represented a switch from 2014, when ads by Democrats were substantially more negative than those by Republicans.
 
-Other 2018 election ads came in for criticism for threatening violence or perceived xenophobia.
+Other 2018 election ads came in for criticism for threatening violence or [perceived](https://www.oxfordlearnersdictionaries.com/definition/english/perceive#perceive__15) xenophobia._I perceived a change in his behaviour._
 
-Scott Wagner, a Republican challenging Democratic incumbent Tom Wolf for governor of Pennsylvania, threatened his rival with the “golf spikes” ad. Polls show Wolf has a wide lead.
+Scott Wagner, a Republican challenging Democratic incumbent/ɪnˈkʌmbənt/ Tom Wolf for governor of Pennsylvania, threatened his rival with the “golf spikes” ad. Polls show Wolf has a wide lead.
 
 “Governor Wolf, let me tell you what, between now and Nov. 6, you’d better put a catcher’s mask on your face because I’m going to stomp all over your face with golf spikes,” Wagner said in the video.
 
 Wagner later took the ad down amid criticism from national Republican leaders, saying he had “chosen a poor metaphor.”
 
-New York Republican Representative John Faso has repeatedly run spots against his Democratic challenger, a black former Rhodes scholar and Harvard-educated lawyer, highlighting offensive language Antonio Delgado used as a young aspiring rapper.
+New York Republican Representative John Faso has repeatedly run spots against his Democratic challenger, a black former Rhodes scholar and Harvard-educated lawyer, highlighting offensive language Antonio Delgado used as a young aspiring/əˈspaɪərɪŋ/ rapper.
 
 Delgado responded by saying his past lyrics were taken out of context in an attempt to “otherize” him from voters in one of the whitest districts of the state.
 
-California Republican Representative Duncan Hunter ran a spot accusing his challenger, Ammar Campa-Najjar, of trying “to hide his family’s ties to terrorism.” The ad focuses on his heritage – his mother is Mexican-American and his father is Palestinian. It calls him a “Palestinian, Mexican, millennial Democrat” who is funded by “the Muslim Brotherhood” and a “security risk.”
+California Republican Representative Duncan Hunter ran a spot accusing his challenger, Ammar Campa-Najjar, of trying “to hide his family’s ties to terrorism.” The ad focuses on his heritage – his mother is Mexican-American and his father is Palestinian. It calls him a “Palestinian, Mexican, millennial /mɪˈleniəl/ Democrat” who is funded by “the Muslim Brotherhood” and a “security risk.”
 
-Campa-Najjar worked in President Barack Obama’s White House and later in the Department of Labor - jobs that require security clearance. Although his Palestinian grandfather, Muhammad Yusuf al-Najjar, was accused by Israel of being involved in the 1972 massacre of Israeli athletes at the Munich Olympics, Campa-Najjar was born 16 years after Yusuf al-Najjar died.
+Campa-Najjar worked in President Barack Obama’s White House and later in the Department of Labor - jobs that require security clearance. Although his Palestinian grandfather, Muhammad Yusuf al-Najjar, was accused by Israel of being involved in the 1972 massacre/ˈmæsəkər/ of Israeli athletes at the Munich Olympics, Campa-Najjar was born 16 years after Yusuf al-Najjar died.
 
 Democratic candidates for Congress in Ohio and California have been similarly labeled for their respective work at a law firm that once handled lawsuits involving Libya and for having been a substitute English teacher at a Muslim high school.
 
