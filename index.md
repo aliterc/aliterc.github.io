@@ -92,6 +92,24 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1022 UK car insurance premiums up for first time in 12 months - survey
+
+(Reuters) - The cost of a comprehensive motor insurance policy rose by one percent in Britain in the third quarter, the first rise for 12 months, a survey said on Monday.
+
+Prices had been pushed down ahead of expected changes in the Odgen rate, used to calculate compensation for personal injuries and the Civil Liability Bill, which includes reforms likely to reduce claims for whiplash injuries. A reduction in the volume of claims also kept a lid on prices.
+
+This fall, however, was difficult to sustain because of ongoing pressures on repair costs, uncertainty surrounding the bill and changes to the Ogden rate,” Stephen Jones, UK Head of P&C Pricing, Claims, Product and Underwriting at Willis Towers Watson, said.
+
+The average premium for a comprehensive policy is now 760 pounds ($1,004) according to the latest index from price comparison site Confused.com, compiled by insurance advisory company Willis Towers Watson.
+
+The index, based on enquiries submitted to Admiral Group’s (ADML.L) Confused.com, found that prices had risen for the first time since they peaked last summer at 847 pounds.
+
+The survey said that Britain’s exit from the European Union could delay the passage of the Civil Liability Bill and any benefits to insurers, pushing back its implementation date from April 2019.
+
+Companies such as Admiral, RSA Insurance (RSA.L), Direct Line (DLGD.L), esure (ESUR.L) and Hastings (HSTG.L) provide motor insurance in Britain’s highly competitive insurance sector.
+
+(Britain's motor insurers hit by falling prices, regulation, tmsnrt.rs/2OjU2Ml)
+
 - 1021 Black '[lynching](https://www.oxfordlearnersdictionaries.com/definition/english/lynching?q=lynching)' ad illustrates race [overtones](https://www.oxfordlearnersdictionaries.com/definition/english/overtone#overtone__13), anger in U.S. campaign ads
 
 NEW YORK (Reuters) - Many political ads in this year’s U.S. elections pack an unusually harsh and personal punch - some with racial overtones.
