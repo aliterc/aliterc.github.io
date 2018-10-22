@@ -96,11 +96,11 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 (Reuters) - The cost of a comprehensive motor insurance policy rose by one percent in Britain in the third quarter, the first rise for 12 months, a survey said on Monday.
 
-Prices had been pushed down ahead of expected changes in the Odgen rate, used to calculate compensation for personal injuries and the Civil Liability Bill, which includes reforms likely to reduce claims for whiplash injuries. A reduction in the volume of claims also kept a lid on prices.
+Prices had been pushed down ahead of expected changes in the Odgen rate, used to calculate compensation for personal injuries and the Civil [Liability](https://www.oxfordlearnersdictionaries.com/definition/english/liability?q=Liability) Bill, which includes reforms likely to reduce claims for whiplash injuries. A reduction in the volume of claims also kept a lid on prices.
 
 This fall, however, was difficult to sustain because of ongoing pressures on repair costs, uncertainty surrounding the bill and changes to the Ogden rate,” Stephen Jones, UK Head of P&C Pricing, Claims, Product and Underwriting at Willis Towers Watson, said.
 
-The average premium for a comprehensive policy is now 760 pounds ($1,004) according to the latest index from price comparison site Confused.com, compiled by insurance advisory company Willis Towers Watson.
+The average premium for a comprehensive policy is now 760 pounds ($1,004) according to the latest index from price comparison site Confused.com, [compiled](https://www.oxfordlearnersdictionaries.com/definition/english/compile#compile__11) by insurance advisory company Willis Towers Watson.
 
 The index, based on enquiries submitted to Admiral Group’s (ADML.L) Confused.com, found that prices had risen for the first time since they peaked last summer at 847 pounds.
 
