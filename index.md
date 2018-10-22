@@ -2707,6 +2707,15 @@ https://allenneptune.wordpress.com/2018/05/09/a-new-novel-just-started/
 
 https://allenneptune.wordpress.com/2018/06/12/966/
 
+### To my lovers 
+致基友
+
+1.	First time was with you. Yes, it lasted for three or four months. Then done. I abandoned you for CET4 test. In memory, you used your company’s computer but never jumped out of the firewall. After 9 years, I still can’t get a job as good as yours. You fucking got a daily routine: home-work-home, within ten minutes of walk. I fucking got no certain home now: night is day-day is night, even can’t have three meals a day. You said you have done with women, but, you didn’t like it. And, you had had marriage arrangement. I am still amazed by you tech guys’ work without google. They use internet explore and windows. I sometimes in 2015 encountered the Reuters coach in Beijing at 5 am. I thought oh that was the company I had sent CV for years. You know, you can’t buy any printed copy of Financial Times with all pages of market and stock prices here. So I should take Qatar Airways more as they provided the newspaper on the flights. At least FT is not blocked. But still not better than the printed version. We love to print things out, don’t we? Good for eyes and really tell the difference between a printer owner and a guy only could afford a phone. 
+
+第一次基友会面呢是和你。是的，延续了三四个月的会面。然后就分床了。我当时是在准备大学英语四级考试。记忆里，你用公司的电脑但是从来不用翻墙。九年后，我依然不能得到一份和你的一样好的工作。你生活规律啊：起床-上班-回家，十分钟路程来回。我无家可归我：白天当黑夜黑夜当白天，一天吃不了三顿饭。你说你和女的也来过，但是呢，你不喜欢。然后，有人给你相亲了。我真是对你们技术人员却不用谷歌感到惊奇。（你真的是技术人员吗？大公司真的只用内网啊？真强。）Windows真的很难用，越来越难用，有没有感觉电脑会像一块砖。除了office比苹果强，真没别的了。我2015年在北京早上五点碰见了路边的汤森路透公司班车。我想哦那就是我不停发简历从来没回复的公司。你知道呢， 国内好像买不到除了中国日报之外的英文报纸。所以我觉得有钱的话一定要到处飞，飞机上都有当天的当地报纸。印出来当然好了，大街上是个人都有手机啊，穷得只剩个手机了吧，你知道福州打印多少钱一张劣质的A4？一块。我觉得我们这一代人眼睛都有问题。进不了最好的新闻社，那就起码进一个印刷良好销量良好的杂志社啦，不行，西安工程大学，西安肉肉，听好了，那个学校的！的某个化妆师就网红了成名了微博粉丝万千了。这个，我干嘛要出国学这个媒体，在国内学个化妆就行了啊。
+
+很多年前在海蓝心蓝的管理之下有个军警论坛，军警癖好基友交友论坛，竟然没有人管在网上曝露着。于是小小的我，心灵单纯的我，抱着各种良好的暖暖的愿望，开始唱出了自己在gay bar的第一支歌。讲越高调越才艺展示，就会有人来加qq。于是我就和基友见面了。这个故事讲全了。
+
 ### 绘画心得
 
 我真是艺术的门外汉。现在眼睛很不好，颜色辨别不准确，东西也看不清，所以很难讲是否可以继续绘画。
