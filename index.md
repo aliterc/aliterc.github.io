@@ -94,7 +94,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 1022 UK car insurance premiums up for first time in 12 months - survey
 
-(Reuters) - The cost of a comprehensive motor insurance policy rose by one percent in Britain in the third quarter, the first rise for 12 months, a survey said on Monday.
+(Reuters) - The cost of a [comprehensive](https://www.oxfordlearnersdictionaries.com/definition/english/comprehensive_1?q=comprehensive+) motor insurance policy rose by one percent in Britain in the third quarter, the first rise for 12 months, a survey said on Monday.
 
 Prices had been pushed down ahead of expected changes in the Odgen rate, used to calculate compensation for personal injuries and the Civil [Liability](https://www.oxfordlearnersdictionaries.com/definition/english/liability?q=Liability) Bill, which includes reforms likely to reduce claims for whiplash injuries. A reduction in the volume of claims also kept a lid on prices.
 
