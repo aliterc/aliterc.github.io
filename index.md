@@ -108,7 +108,7 @@ The survey said that Britain’s exit from the European Union could delay the pa
 
 Companies such as Admiral, RSA Insurance (RSA.L), Direct Line (DLGD.L), esure (ESUR.L) and Hastings (HSTG.L) provide motor insurance in Britain’s highly competitive insurance sector.
 
-(Britain's motor insurers hit by falling prices, regulation, tmsnrt.rs/2OjU2Ml)
+(Britain's motor insurers hit by falling prices, regulation, tmsnrt.rs/2OjU2Ml) [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/EB%201022.m4a)
 
 - 1021 Black '[lynching](https://www.oxfordlearnersdictionaries.com/definition/english/lynching?q=lynching)' ad illustrates race [overtones](https://www.oxfordlearnersdictionaries.com/definition/english/overtone#overtone__13), anger in U.S. campaign ads
 
@@ -174,7 +174,7 @@ California Republican Representative Duncan Hunter ran a spot accusing his chall
 
 Campa-Najjar worked in President Barack Obama’s White House and later in the Department of Labor - jobs that require security clearance. Although his Palestinian grandfather, Muhammad Yusuf al-Najjar, was accused by Israel of being involved in the 1972 massacre/ˈmæsəkər/ of Israeli athletes at the Munich Olympics, Campa-Najjar was born 16 years after Yusuf al-Najjar died.
 
-Democratic candidates for Congress in Ohio and California have been similarly labeled for their respective work at a law firm that once handled lawsuits involving Libya and for having been a substitute English teacher at a Muslim high school.
+Democratic candidates for Congress in Ohio and California have been similarly labeled for their respective work at a law firm that once handled lawsuits involving Libya and for having been a substitute English teacher at a Muslim high school. [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/EB%201021.m4a)
 
 - Resolve conflicts
 
