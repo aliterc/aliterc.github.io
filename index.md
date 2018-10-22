@@ -92,6 +92,29 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1023 Breakingviews - Holding: Company babysitters get deserved spanking
+
+NEW YORK (Reuters Breakingviews) - Uncle Sam is finally delivering a spanking to company babysitters. The U.S. Department of Justice announced last week that it will cut back on hiring private monitors for corporate wrongdoers. Once trusted to keep the likes of Citigroup and Apple in line, these super-nannies have often turned out to be meddlers fond of excessive oversight and multi-million dollar fees.  
+
+The original idea was to put official eyes and ears inside companies that agreed to make amends for past offenses. Bank of America, for example, accepted a monitor in 2014 to ensure compliance with its $16.7 billion dodgy-mortgage settlement, which required the bank to modify loans, help low-income borrowers and provide other consumer relief. Companies ranging from BP to Credit Suisse have in recent years accepted similar arrangements.
+
+As Assistant Attorney General Brian Benczkowski acknowledged in a speech last week, though, monitors put a tremendous strain on companies. He unveiled new limits that would require the watchdogs “only as necessary,” never as a “punitive” measure and “as the exception, not the rule.” Two big factors in deciding whether to appoint one: “financial cost” and “unnecessary burdens” to the business. However this policy plays out, experience suggests that it’s good news for shareholders and the public.
+
+Even qualified monitors with solid track records can go astray. In 2013, the federal judge handling Apple’s e-book antitrust judgment appointed Michael Bromwich as the company’s overseer, a respected former prosecutor and, more recently, the lawyer for Christine Blasey Ford, who accused Supreme Court Justice Brett Kavanaugh of sexual assault. The iPhone maker soon raised a stink, though, criticizing Bromwich’s $1,100-an-hour fees, overly intrusive meetings with Chief Executive Tim Cook, Chief Design Officer Jony Ive and other top executives and a bill of nearly $140,000 for two weeks of work. The judge acknowledged the “challenging relationship” in declining to renew Bromwich’s appointment after two years.
+
+Other monitors have provoked even more controversy. In 2007, then-New Jersey Governor Chris Christie took heat for appointing his ex-boss – former U.S. Attorney General John Ashcroft – to oversee corrupt medical-device manufacturers. The Ashcroft firm’s bill: somewhere between $28 million and $52 million over 18 months.
+
+
+Foreign bribery cases have been especially troublesome. In a 2010 hearing on chemical-maker Innospec’s guilty plea to paying bribes, a federal judge bristled at the prospect of appointing a monitor, saying she wasn’t comfortable approving “a vehicle for someone to make lots of money.” And the Justice Department left another bribery suspect, Faro Technologies, operating in limbo for two years before appointing a monitor.
+
+The arrangement can also be riddled with conflicts, especially since the companies that pay the tab have leverage to call the shots. In 2008, for example, Bank of Tokyo-Mitsubishi persuaded consultancy PricewaterhouseCoopers, which was serving as its monitor, to water down a report on the bank’s dealings with Iran and other blacklisted countries. New York State’s then-top financial regulator, Benjamin Lawsky, fined the consulting firm $25 million six years later for lacking integrity and objectivity. The previous year it had slapped Deloitte with a $10 million penalty for similar behavior involving Standard Chartered.
+
+Those examples are probably not the norm, given how many independent monitors are appointed—one in every three cases involving corporations over the past five years, according to Benczkowski. Yet the instances of overreach have been too numerous to ignore. What’s more, there’s no way to tell whether any monitor has been effective, because their reports are confidential. The only certainty is that the hefty cost of their services ultimately bypasses the wrongdoers themselves and falls on innocent shareholders.
+
+The risk in reducing the role of monitors is, of course, that what replaces them — if anything does — may be worse. The new Justice Department policy raises the possibility that many corporate wrongdoers will be on their own in ensuring compliance with the terms of their legal settlements. That may work for responsible companies with tight oversight of their finances and operations. It’s small comfort, however, for an American public that has watched a parade of repeat corporate offenders churn through the DOJ and the enforcement divisions of the Securities and Exchange Commission and other regulators in recent decades.
+
+Holding top executives legally accountable for the transgressions of their firms would still be the most effective deterrent to corporate crime. Short of that, a business-friendly DOJ has at least seen the folly of outsourcing its watchdog role. The next step will be to prove that it can handle the job itself.
+
 - 1022 FB [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/fb%201022.m4a)
 
 - UK car insurance premiums up for first time in 12 months - survey
