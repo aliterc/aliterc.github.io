@@ -92,7 +92,9 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1022 UK car insurance premiums up for first time in 12 months - survey
+- 1022 FB [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/fb%201022.m4a)
+
+- UK car insurance premiums up for first time in 12 months - survey
 
 (Reuters) - The cost of a [comprehensive](https://www.oxfordlearnersdictionaries.com/definition/english/comprehensive_1?q=comprehensive+) motor insurance policy rose by one percent in Britain in the third quarter, the first rise for 12 months, a survey said on Monday.
 
