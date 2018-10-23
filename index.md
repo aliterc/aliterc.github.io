@@ -92,7 +92,25 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- 1024 India looks to tighten sexual harassment laws: government officials
+- 1024 Text composition methods
+
+The appearance of text on the page depends on a complex interaction of processes called text composition. Using the word spacing, letter spacing, and glyph spacing options you’ve selected, After Effects evaluates possible line breaks and chooses the one that best supports the specified parameters.
+
+After Effects offers two composition methods, which you choose from the Paragraph panel menu.
+
+Adobe Single-line Composer
+
+Offers a traditional approach to composing text one line at a time. This option is useful if you prefer to have manual control over how lines break. If spacing must be adjusted, the Single-line Composer first tries to compress, rather than expand text.
+
+Adobe Every-line Composer
+
+Considers a network of breakpoints for a range of lines and thus can optimize earlier lines in the paragraph to eliminate especially unattractive breaks later on. Working with multiple lines of text results in more even spacing and fewer hyphens. The Every-line Composer approaches composition by identifying possible breakpoints, evaluating them, and assigning a weighted penalty based on these principles:
+
+Highest importance is given to evenness of letter and word spacing. Possible breakpoints are evaluated and penalized according to how much they deviate from optimal spacing.
+
+After breakpoint penalty values are identified for a range of lines, they are squared, magnifying the bad breakpoints. The composer then uses the good breakpoints.
+
+- India looks to tighten sexual harassment laws: government officials
 
 NEW DELHI (Reuters) - India is considering tightening sexual harassment laws, government officials said on Thursday, after an avalanche of complaints of abuse lodged by women in recent weeks thrust the issue to the forefront of politics.
 
