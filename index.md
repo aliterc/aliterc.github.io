@@ -92,6 +92,40 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1024 India looks to tighten sexual harassment laws: government officials
+
+NEW DELHI (Reuters) - India is considering tightening sexual harassment laws, government officials said on Thursday, after an avalanche of complaints of abuse lodged by women in recent weeks thrust the issue to the forefront of politics.
+
+Changes to the laws are being considered as the government weighs different proposals to tackle harassment, one of the officials said.
+
+“The official announcement could come next week,” said the official, who works in the prime minister’s office.
+
+The officials declined to give any details about possible changes.
+
+The government focus on the law has come after women’s rights groups complained that the existing laws do not go far enough to address the widespread problem of sexual harassment.
+
+A junior government minister resigned on Wednesday after he faced sexual harassment accusations from more than a dozen women.
+
+The allegations related to when the junior foreign minister, M.J. Akbar, was a top newspaper editor. He is the biggest casualty since the #MeToo movement in India gained traction in recent weeks.
+
+Akbar has denied wrongdoing and said he was stepping down so that he could fight the allegations in court.
+
+A Delhi court began proceedings on Thursday in a defamation suit filed by Akbar against one of the women who leveled accusations against him. The next hearing will be on Oct. 31.
+
+The previous government passed a workplace harassment act and an act to amend criminal law in 2013. The latter made sexual harassment, stalking and voyeurism crimes.
+
+But women’s groups say a requirement that accusations be made to a workplace complaints committee within three months is unfair as some women can not quickly muster the courage to take that step.
+
+The government should review certain provisions of the sexual harassment prevention law, said Rebecca John, a lawyer who is defending the woman against whom Akbhar has filed a defamation suit.
+
+“The provision of filing a complaint within three months should be made more flexible,” she said.
+
+In the case of many of the recent complaints against journalists, actors and other public figures, many of which were made under the #MeToo hashtag on social media, the accusations related to incidents that happened years ago.
+
+Women’s groups also say that the law doesn’t make clear who in a workplace is in charge of ensuring compliance and is therefore responsible if its provisions are not followed.
+
+The workplace law also only requires an organization employing more than 10 people to set up an internal complaints committee to hear and redress sexual harassment grievances, but critics say many companies don’t do that.
+
 - 1023 Breakingviews - Holding: Company babysitters get deserved spanking
 
 NEW YORK (Reuters Breakingviews) - Uncle Sam is finally delivering a spanking to company babysitters. The U.S. Department of Justice announced last week that it will cut back on hiring private monitors for corporate wrongdoers. Once trusted to keep the likes of Citigroup and Apple in line, these super-nannies have often turned out to be meddlers fond of excessive oversight and multi-million dollar fees.  
