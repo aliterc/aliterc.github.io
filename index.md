@@ -142,7 +142,7 @@ In the case of many of the recent complaints against journalists, actors and oth
 
 Women’s groups also say that the law doesn’t make clear who in a workplace is in charge of ensuring compliance and is therefore responsible if its provisions are not followed.
 
-The workplace law also only requires an organization employing more than 10 people to set up an internal complaints committee to hear and redress sexual harassment grievances, but critics say many companies don’t do that.
+The workplace law also only requires an organization employing more than 10 people to set up an internal complaints committee to hear and redress sexual harassment grievances, but critics say many companies don’t do that. [AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/eb1025.m4a)
 
 - 1023 Breakingviews - Holding: Company babysitters get deserved spanking
 
