@@ -92,6 +92,16 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1025 ネバダ州知事選の共和党候補、親戚が不支持　「地元育ちは虚偽」
+
+［２３日　ロイター］ - 州知事選挙を１１月６日に控える米ネバダ州で、共和党候補アダム・ラクソルト氏（４０）の親戚が、同氏に投票しないよう呼び掛ける論説を地元紙に寄稿した。
+
+ネバダ州司法長官のラクソルト氏は、過去に同州知事や上院議員を務め、レーガン元大統領に近かった大物政治家、故ポール・ラクソルト氏の孫。州知事選の世論調査では、支持率が民主党候補を僅差で上回っている。
+
+アダム・ラクソルト氏のおばやいとこを含む親戚はリノ・ガゼット・ジャーナル紙の論説で、同氏がワシントンで育ち、２０１３年に政治活動のためネバダ州に移った外部の人間だと主張。「実際にネバダ州で育ったわれわれにとって、彼が地元育ちや地元市民との深いつながりを偽って主張し続けるのを耳にするのはつらい」とし、一族の名前が利用されるのを阻止せざるを得ないと感じたと説明した。
+
+ラクソルト陣営の広報担当は発表文書で、同候補には多くの親戚がおり、一部の遠戚はリベラル派の活動家や献金者だとした。
+
 - 1024 Text composition methods
 
 The appearance of text on the page depends on a complex interaction of processes called text composition. Using the word spacing, letter spacing, and glyph spacing options you’ve selected, After Effects evaluates possible line breaks and chooses the one that best supports the specified parameters.
