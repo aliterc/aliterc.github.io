@@ -94,11 +94,17 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 1025 ネバダ州知事選の共和党候補、親戚が不支持　「地元育ちは虚偽」
 
+Nebada-shū chiji-sen no Kyōwatō kōho, shinseki ga fu shiji /jimoto sodachi wa kyogi/
+
 ［２３日　ロイター］ - 州知事選挙を１１月６日に控える米ネバダ州で、共和党候補アダム・ラクソルト氏（４０）の親戚が、同氏に投票しないよう呼び掛ける論説を地元紙に寄稿した。
+
+[23-Nichi roitā] - shūchijisenkyo o 11 tsuki 6-nichi ni hikaeru Amerika Nebada-shū de, Kyōwatō kōho Adamu rakusoruto-shi (40) no shinseki ga, dōshi ni tōhyō shinai yō yobikakeru ronsetsu o djimotoshi ni kikō shita.
 
 A Republican candidate for governor of Nevada ran into some stiff opposition on Tuesday from members of his own family, who urged voters not to pick him as the state’s chief executive.
 
 ネバダ州司法長官のラクソルト氏は、過去に同州知事や上院議員を務め、レーガン元大統領に近かった大物政治家、故ポール・ラクソルト氏の孫。州知事選の世論調査では、支持率が民主党候補を僅差で上回っている。
+
+Nebada-shū shihō chōkan no rakusoruto-shi wa, kako ni dō shū chiji ya Jōin giin o tsutome, rēgan moto daitōryō ni chikakatta ōmono seijika, ko pōru rakusoruto-shi no mago.-Shū chiji-sen no seronchōsade wa, shiji-ritsu ga Minshutō kōho o kinsa de uwamawatte iru.
 
 Adam Laxalt, the 40-year-old Nevada attorney general and grandson of the late Paul Laxalt - a giant in Nevada politics - handily won the Republican gubernatorial primary and holds a razor-thin lead over Democratic opponent Steve Sisolak in opinion polls, two weeks ahead of the Nov. 6 election. 
 
@@ -106,11 +112,15 @@ Laxalt’s grandfather Paul Laxalt, who died in August, was one of former Presid
 
 アダム・ラクソルト氏のおばやいとこを含む親戚はリノ・ガゼット・ジャーナル紙の論説で、同氏がワシントンで育ち、２０１３年に政治活動のためネバダ州に移った外部の人間だと主張。「実際にネバダ州で育ったわれわれにとって、彼が地元育ちや地元市民との深いつながりを偽って主張し続けるのを耳にするのはつらい」とし、一族の名前が利用されるのを阻止せざるを得ないと感じたと説明した。
 
+Adamu rakusoruto-shi no oba ya itoko o fukumu shinseki wa Rino gazetto jānaru-shi no ronsetsu de, dōshi ga Washinton de sodachi, 2013-nen ni seiji katsudō no tame Nebada-shū ni utsutta gaibu no ningenda to shuchō. /Jissai ni Nebada-shū de sodatta wareware ni totte, kare ga jimoto sodachi ya jimoto shimin to no fukai tsunagari o itsuwatte shuchō shi tsudzukeru no o mimi ni suru no wa tsurai/ to shi, ichizoku no namae ga riyō sa reru no o soshi sezaruwoenai to kanjita to setsumei shita.
+
 But in an op-ed published in the Reno Gazette Journal newspaper, a dozen of Laxalt’s relatives - including aunts and cousins - characterized the Republican nominee as an outsider who was raised in Washington, D.C. and moved to Nevada in 2013 to pursue his political ambitions.
 
 “For those of us who were actually raised in Nevada, it’s difficult to hear him continue to falsely claim that he was raised in Nevada or has any true connections to Nevadans,” his relatives wrote, saying they felt “compelled” to protect the family name from being exploited.
 
 ラクソルト陣営の広報担当は発表文書で、同候補には多くの親戚がおり、一部の遠戚はリベラル派の活動家や献金者だとした。
+
+Rakusoruto jin'ei no kōhō tantō wa happyō bunsho de, dō kōho ni wa ōku no shinseki ga ori, ichibu no enseki wa riberaru-ha no katsudō-ka ya kenkin-shada to shita.
 
 “Adam has a large family and some distant relatives are lifelong liberal activists, donors and operatives,” a Laxalt campaign spokesman said in a statement.
 
