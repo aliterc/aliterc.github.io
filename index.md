@@ -96,11 +96,23 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 ［２３日　ロイター］ - 州知事選挙を１１月６日に控える米ネバダ州で、共和党候補アダム・ラクソルト氏（４０）の親戚が、同氏に投票しないよう呼び掛ける論説を地元紙に寄稿した。
 
+A Republican candidate for governor of Nevada ran into some stiff opposition on Tuesday from members of his own family, who urged voters not to pick him as the state’s chief executive.
+
 ネバダ州司法長官のラクソルト氏は、過去に同州知事や上院議員を務め、レーガン元大統領に近かった大物政治家、故ポール・ラクソルト氏の孫。州知事選の世論調査では、支持率が民主党候補を僅差で上回っている。
+
+Adam Laxalt, the 40-year-old Nevada attorney general and grandson of the late Paul Laxalt - a giant in Nevada politics - handily won the Republican gubernatorial primary and holds a razor-thin lead over Democratic opponent Steve Sisolak in opinion polls, two weeks ahead of the Nov. 6 election. 
+
+Laxalt’s grandfather Paul Laxalt, who died in August, was one of former President Ronald Reagan’s closest political friends and served Nevada as governor and U.S. senator.
 
 アダム・ラクソルト氏のおばやいとこを含む親戚はリノ・ガゼット・ジャーナル紙の論説で、同氏がワシントンで育ち、２０１３年に政治活動のためネバダ州に移った外部の人間だと主張。「実際にネバダ州で育ったわれわれにとって、彼が地元育ちや地元市民との深いつながりを偽って主張し続けるのを耳にするのはつらい」とし、一族の名前が利用されるのを阻止せざるを得ないと感じたと説明した。
 
+But in an op-ed published in the Reno Gazette Journal newspaper, a dozen of Laxalt’s relatives - including aunts and cousins - characterized the Republican nominee as an outsider who was raised in Washington, D.C. and moved to Nevada in 2013 to pursue his political ambitions.
+
+“For those of us who were actually raised in Nevada, it’s difficult to hear him continue to falsely claim that he was raised in Nevada or has any true connections to Nevadans,” his relatives wrote, saying they felt “compelled” to protect the family name from being exploited.
+
 ラクソルト陣営の広報担当は発表文書で、同候補には多くの親戚がおり、一部の遠戚はリベラル派の活動家や献金者だとした。
+
+“Adam has a large family and some distant relatives are lifelong liberal activists, donors and operatives,” a Laxalt campaign spokesman said in a statement.
 
 - 1024 Text composition methods
 
