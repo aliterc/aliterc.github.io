@@ -92,6 +92,15 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1030 EB1030[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/eb1030.m4a)
+
+- 1029 fb1029[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/fb%201029.m4a)
+       EB1029[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/EB%201029.m4a)
+
+- 1028 
+
+- 1027 
+
 - 1026 eb1026[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/EB%201026.m4a)
 
 - 1025 fb1025[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/fb%201025.m4a)
