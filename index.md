@@ -141,6 +141,25 @@ Painting and paint effects. Maya includes an incredible system for using a graph
 
 Lighting, Shading, and Rendering. When you want to render a still image or movie of your scene or animation, you can create them using your choice of renderers.
 
+- Spinal Cord Diseases
+
+Your spinal cord is a bundle of nerves that runs down the middle of your back. It carries signals back and forth between your body and your brain. It is protected by your vertebrae, which are the bone disks that make up your spine. If you have an accident that damages the vertebrae or other parts of the spine, this can also injure the spinal cord. Other spinal cord problems include
+
+_the new printer cost a bundle._
+
+Tumors
+
+Infections such as meningitis and polio
+
+Inflammatory diseases
+
+Autoimmune diseases
+
+Degenerative diseases such as amyotrophic lateral sclerosis and spinal muscular atrophy
+
+Symptoms vary but might include pain, numbness, loss of sensation and muscle weakness. These symptoms can occur around the spinal cord, and also in other areas such as your arms and legs. Treatments often include medicines and surgery.
+
+
 - 1103
 
 - 1102
