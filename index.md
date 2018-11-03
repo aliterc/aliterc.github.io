@@ -92,6 +92,37 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 1104 Hailstorms ravage French Bordeaux vineyards
+_his face had withstood the ravages of time_
+
+BORDEAUX [bɔʁdo] (Reuters) - Violent hailstorms ravaged parts of the Bordeaux wine region in southwestern France on Saturday causing major damage in hundreds of vineyards with thousands of hectares of vines destroyed, producers said on Monday.
+
+This comes just a year after the Bordeaux region suffered one of its worst harvests in history with a fall of 39 percent on year due to late frosts, which lead to a jump in prices.
+
+The hail first hit the south of the region on Saturday at midday, affecting the Pessac-Leognan [pɛsak leɔɲɑ̃] region and the south of Medoc [meˈdɔk], home to some of the region’s most famous chateaux, Bernard Farges, head of Bordeaux producers’ union CIVB, said.
+
+It then devastated vineyards of Cotes de Bourg and Cotes de Blaye [blaj] on the right bank of the Gironde [ʒiʁɔ̃d] river and, further east, in the Gensac and Pessac-sur-Dordogne.
+
+The vineyard of Cognac was also hit by hail. Officials mention an initial figure of 10,000 hectares (24,710 acres) affected out of a total 70,000 hectares. They had also been affected by frosts last year.
+
+“The figures...which will have to be refined, show that between 500 and more than 1,000 wine growers have been affected with a area hit of 1,000 hectares in the Medoc, between 4,000 and 5,000 hectares for Cote de Blaye and Cote de Bourg and about 1,000 hectares in the vicinity of Gensac”, Farges told Reuters.
+
+Some winemakers lost 100 percent of their harvest, he said.
+
+There are 112,000 hectares of vines in the entire Bordeaux vineyard, the second-largest wine producing region in France after Languedoc Roussillon [lɑ̃ɡdɔk ʁusijɔ̃].
+
+Last year France’s total production had fallen to a record low due to a series of poor weather incidents including spring frosts, drought and storms that affected most of the main growing regions including Bordeaux and Champagne.
+
+Bordeaux wine prices rose 16 percent in the first six months of the 2017/18 season, farm ministry data released in March showed.
+
+- 1103
+
+- 1102
+
+- 1101
+
+- 1031
+
 - 1030 EB1030[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/eb1030.m4a)
 
 - 1029 fb1029[AUDIO](https://github.com/aliterc/aliterc.github.io/blob/master/fb%201029.m4a)
