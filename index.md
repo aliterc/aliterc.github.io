@@ -115,6 +115,32 @@ Last year France’s total production had fallen to a record low due to a series
 
 Bordeaux wine prices rose 16 percent in the first six months of the 2017/18 season, farm ministry data released in March showed.
 
+- Basics
+
+Maya is the premier application for creating compelling 3D digital content, including models, animation, visual effects, games, and simulations.
+
+The work you do in Maya generally falls into these categories:
+
+Creating models. Polygons, Non-Uniform Rational B-Splines (NURBS), and subdivision surfaces are different object types with different ways of modeling. Each has its own strengths, and different artists prefer working with different types.
+
+Polygons let you model a surface by building up and reshaping a number of simple surface facets. 
+
+_A blue and green jewel that shines from a million facets_
+
+NURBS let you easily create smooth, curving surfaces with high-level control.
+
+Subdivision surfaces let you edit surfaces at a high level with minimum overhead data, while still letting you work with subsections of the surface as if they were made from polygons.
+
+Character rigging. Most animations involve “characters,” articulated models such as a person, an animal, robot, or anything else that moves by articulation. Maya lets you define internal skeletons for characters and bind skin to them to create realistic movement with deformation.
+
+Animation. Just about everything you can think of in Maya is keyable or able to be animated.
+
+Dynamics, fluids, and other simulated effects. Maya includes a comprehensive suite of tools for simulating real world effects such as fire, explosions, fluids, hair and fur, the physics of colliding objects, and more.
+
+Painting and paint effects. Maya includes an incredible system for using a graphics tablet (or the mouse) to paint 2D canvases, paint directly on 3D models, paint to create geometry, scriptable paint, and virtually limitless other possibilities.
+
+Lighting, Shading, and Rendering. When you want to render a still image or movie of your scene or animation, you can create them using your choice of renderers.
+
 - 1103
 
 - 1102
