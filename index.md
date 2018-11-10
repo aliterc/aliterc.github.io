@@ -98,6 +98,20 @@ Aromatic smooth panang dry curry with coconut milk & kaffir lime leaves
 
 ![img](https://allenneptune.files.wordpress.com/2018/10/21-1.jpg?w=640)
 
+ingredients
+
+curry paste imported, containing garlic, shallot, oil, spice, lemongrass, chill, salt, galangal
+
+coconut milk
+
+1. heat the pan over light heat until very hot.
+
+2. add the coconut milk and cook until oil separated from the milk, about 8 min.
+
+3. ajounter une cuiller a soupe de the curry paste, the shredded coconut, kaffir lime, fish sauce, palm sugar, cilantro root, salt, couvnir et laisser a feu tres doux. melanger petit a petit.
+
+4. add the steak, heat through. 
+
 - 1104 Hailstorms ravage French Bordeaux vineyards
 _his face had withstood the ravages of time_
 
