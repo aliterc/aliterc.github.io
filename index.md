@@ -92,6 +92,28 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- Mountains and forests of china
+
+Instructions:
+
+AE/Formatting paragraphs and the Paragraph panel
+
+CAD/Printing
+
+MAYA/Basics
+
+Medical:
+
+Throat Disorders
+
+Spinal Cord Diseases
+
+Laser Eye Surgery
+
+Asthma
+
+Sprains and Strains
+
 - Gang Pa-nang
 
 Aromatic smooth panang dry curry with coconut milk & kaffir lime leaves
