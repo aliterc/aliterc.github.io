@@ -94,6 +94,21 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - BILLY YIN VOL.25
 
+Lost connections 3
+
+@scruffapp someone Latin, 40, blocked me ... could you tell him that I would like to stay outside his block list... his hair was yellow... I can't have that color, his eyes were big... absolutely lovely. on his window a plant was there. …have you ever met him… love potion.
+
+Brazil's Jair Bolsonaro makes top judge Sergio Moro justice minister
+
+Hailstorms ravage French Bordeaux vineyards
+
+Moyane unlikely to succeed in ConCourt challenge — Ramaphosa
+
+Exclusive: Twitter deletes over 10,000 accounts that sought to discourage U.S. voting
+
+Judges named to hear government's appeal of AT&T Time Warner deal approval
+
+'Living corpses': Why Colombia's national tree is at risk
 
 - Mountains and forests of china
 
