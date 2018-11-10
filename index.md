@@ -98,6 +98,8 @@ Lost connections 3
 
 @scruffapp someone Latin, 40, blocked me ... could you tell him that I would like to stay outside his block list... his hair was yellow... I can't have that color, his eyes were big... absolutely lovely. on his window a plant was there. …have you ever met him… love potion.
 
+cover story: interview with It is not clear if or how this will affect the pair's divorce proceedings, which have been stalled in the courts for years. 
+
 Brazil's Jair Bolsonaro makes top judge Sergio Moro justice minister
 
 Hailstorms ravage French Bordeaux vineyards
