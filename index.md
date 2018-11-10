@@ -112,6 +112,8 @@ coconut milk
 
 4. add the steak, heat through. 
 
+A kitchen in a rented room in Paris, Chinese- arab- black part. MONICA LIN, restaurant owner and former teacher, wears a silk pale green roman style tunic. His boyfriend, we can't see him, orders an 8 euro takeaway from a Thai restaurant. A Walmart reciept is on the plan de travail, curry paste reduced, 5, coconut milk... She feels fainted because the airconditioning is not working. The gas has ran out. She calls her father who hates her for affidavit relating to the claim for unfair dismissal by Kent University where she was an employee. The stove is donated to YMCA, which has only been used for a month. It was from John Lewis. She heats the pan over light heat until very hot (smoking). She adds the coconut milk, can, and cooks until oil seperats from the milk. Avoir un teint d'endive... she is to be as pale as ghost as there is no sunshine in the room. She opens a bottle of cocacola to avoid falling down. She then adds curry paste, other ingredients. The steak was in the fridge, also donated to YMCA used for a month. Her cooking is professional and accurate: no drop of water is on the floor, on her cloth.    
+
 - 1104 Hailstorms ravage French Bordeaux vineyards
 _his face had withstood the ravages of time_
 
