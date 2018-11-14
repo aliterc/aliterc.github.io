@@ -92,7 +92,7 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
-- Bring existing websites from a remote server to your local site root
+- 1114 Bring existing websites from a remote server to your local site root
 
 Learn how to establish a connection to a website's remote server and download the files to your computer, to edit in Dreamweaver.
 You can use Dreamweaver to copy an existing remote site (or any branch of a remote site) to your local disk and edit it there, even if you didn’t use Dreamweaver to create the original site. You must have the correct connection information, and connect to the site’s remote server, before you can edit the site.
@@ -130,6 +130,34 @@ Dreamweaver automatically duplicates as much of the remote site’s structure as
 Once the files are downloaded, you can see the files appear in the Files panel.
 
 After you are done with your edits, you can then repost the new versions of the files back to the server, or you can set up another remote site in relation to this same local directory /daɪˈrektəri/, and post the edited files to a different server entirely.
+
+- Blancs de turbot/tyʀbo/ sur blancs de poireaux/pwaʀo/
+
+Simple mais/mɛ/ mortellement/mɔʀtɛlmɑ̃/ délicieux 
+
+Cuisson : 10' Difficulté moyenne
+
+Pour cette recette de blancs de turbot pour 2 personnes
+
+2 filets de turbot de 200 g chacun - 4 blancs de poireaux - 2 dl de crème - sel et poivre du moulin.
+
+Émincer/emɛ̃se/ les blancs de poireaux et les faire/fɛʀ/ suer/sɥe/ dans un beurre fondu/fɔ̃dy/ sans coloration et à couvert/kuvɛʀ/. 
+
+Quand les poireaux prennent un aspect de compote bien luisante et fondante verser un peu de crème pour lier et mélanger.
+
+Verser les poireaux dans un plat allant au four poser les blancs de turbot sur les poireaux.
+
+Napper légèrement de crème. 
+
+Saler et poivrer.
+
+Couvrir d'une feuille d'aluminium.
+
+Porter au four à température douce (160°C) environ. 
+
+Cuire environ 10 à 15 mn (vérifier la cuisson) 
+
+Saupoudrer de quelques herbes fraîches ciselées.
 
 - BILLY YIN VOL.25
 
