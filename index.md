@@ -92,6 +92,45 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- Bring existing websites from a remote server to your local site root
+
+Learn how to establish a connection to a website's remote server and download the files to your computer, to edit in Dreamweaver.
+You can use Dreamweaver to copy an existing remote site (or any branch of a remote site) to your local disk and edit it there, even if you didn’t use Dreamweaver to create the original site. You must have the correct connection information, and connect to the site’s remote server, before you can edit the site.
+
+[Scenario](https://www.oxfordlearnersdictionaries.com/definition/english/scenario?q=Scenario) /səˈnærioʊ/  when you want to bring websites from a remote server and edit them
+
+Sometimes you have to work on websites that are already published on the web, and for which you no longer have the files.
+
+In such a scenario, you can bring in the files to your local system and edit them in Dreamweaver.
+
+High-level workflow
+
+To get files from a remote server to edit them in Dreamweaver, do the following tasks:
+
+Create a local folder to contain the existing site and set up the folder as the local folder for the site.
+
+For more information, see Set up a local version of your site.
+
+Set up a remote folder, using the remote access information about the existing site. You must connect to the remote site to download the files to your computer before you can edit them. 
+
+For more information, see Connect to a publishing server.
+
+Make sure to choose the correct root folder for the remote site.
+
+In the Files panel (Window > Files), click the Connects To Remote Server button (for FTP access) or the Refresh button (for network access) in the toolbar to view the remote site.
+
+Edit the site:
+
+If you want to work with the entire site, select the root folder of the remote site in the Files panel, and click Get File(s) from Remote Server in the toolbar to download the entire site to your local disk.
+
+If you want to work with just one of the files or folders of the site, locate the file or folder in the Remote view of the Files panel, and click Get File(s) from Remote Server in the toolbar to download that file to your local disk.
+
+Dreamweaver automatically duplicates as much of the remote site’s structure as is necessary to place the downloaded file in the correct part of the site hierarchy /ˈhaɪərɑːrki/. 
+
+Once the files are downloaded, you can see the files appear in the Files panel.
+
+After you are done with your edits, you can then repost the new versions of the files back to the server, or you can set up another remote site in relation to this same local directory /daɪˈrektəri/, and post the edited files to a different server entirely.
+
 - BILLY YIN VOL.25
 
 Lost connections 3
