@@ -97,13 +97,16 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 ![img](https://allenneptune.files.wordpress.com/2018/11/27-1.jpg)
 fx_flavor25 12/29/06 187048 Chantilly, Va Post Photos by Rich Lipski Sichuan Village Restaurant, with some hot food dishes, (top L-R) Sichuan street dumplings, twiced cooked tofu and dan dan noodles, (bottom L-R) mapo fish fillet, cumin lamb and chengdu beef. Filed remotely  (Photo by Rich Lipski/The Washington Post/Getty Images)
 
-副食材
-
+Ingredients: 
 關廟細麵3把、牛小排燒烤片200克、薑末10克、蒜末10克、土芹菜末30克、蒜苗末20克、香菜5克、蔥花15克、黃豆芽菜60克、白芝麻1大匙、糊辣渣2大匙、雞高湯800c.c.
+
+Thin noodles 3 handful- beef slices 200g- ginger 10g- garlic 10g- celery 30g- joy of garlic 20g- coriander 5g- spring onion 15g- bean sprouts 60g- white sesame 1tbs- deep fried dry chilly and Sichuan pepper 2tbs- chicken stock 800ml
 
 調味料
 
 糊辣油3大匙、辣豆瓣醬1大匙、糖1茶匙、米酒2大匙、醬油1大匙、花椒油1/2大匙、辣油1大匙、白胡椒粉
+
+Oil from deep fried dry chilly and Sichuan pepper 3 tbs- Sichuan bean paste 1 tbs, sugar 1 tsp, rice wine 2 tbs, soy sauce 1 tbs, Sichuan pepper oil 1/2 tbs- chilly oil 1tbs- white pepper powder  
 
 步驟
 
