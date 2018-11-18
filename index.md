@@ -98,6 +98,7 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 fx_flavor25 12/29/06 187048 Chantilly, Va Post Photos by Rich Lipski Sichuan Village Restaurant, with some hot food dishes, (top L-R) Sichuan street dumplings, twiced cooked tofu and dan dan noodles, (bottom L-R) mapo fish fillet, cumin lamb and chengdu beef. Filed remotely  (Photo by Rich Lipski/The Washington Post/Getty Images)
 
 Ingredients: 
+
 關廟細麵3把、牛小排燒烤片200克、薑末10克、蒜末10克、土芹菜末30克、蒜苗末20克、香菜5克、蔥花15克、黃豆芽菜60克、白芝麻1大匙、糊辣渣2大匙、雞高湯800c.c.
 
 Thin noodles 3 handful- beef slices 200g- ginger 10g- garlic 10g- celery 30g- joy of garlic 20g- coriander 5g- spring onion 15g- bean sprouts 60g- white sesame 1tbs- deep fried dry chilly and Sichuan pepper 2tbs- chicken stock 800ml
@@ -112,13 +113,23 @@ Oil from deep fried dry chilly and Sichuan pepper 3 tbs- Sichuan bean paste 1 tb
 
 1.起滾水鍋，放入關廟麵煮熟後撈出至成品碗中。
 
+Boiling water. Cook the noodle.
+
 2.起深炒鍋，放入牛小排將兩面煎香後取出，備用。
+
+Meanwhile, pan fry the beef on two sides. Put aside.
 
 3.同上鍋，爆香糊辣油、薑末、蒜末，放入辣豆瓣醬炒勻，接著加入高湯，調入花椒油、辣油1/2量、糊辣渣1/2量、黃豆芽、米酒滾煮入味。
 
+Fry oil from deep fried dry chilly and Sichuan pepper, ginger, garlic, Sichuan bean paste. Mix them well on medium heat. Add chicken stock, Sichuan pepper oil, half of the chilly oil, half of the deep fried dry chilly and Sichuan pepper, bean sprouts, rice wine. Bring to boil.
+
 4.同上鍋，調入白胡椒適量、糖1茶匙、醬油1大匙提味，接著加入土芹菜末、牛燒烤片滾煮熟後即可盛入成品碗中。
 
+Add a little white pepper powder, 1tsp sugar, 1 tbs soy sauce, celery, beef, bring to boil again. Pour the soup onto the noodle. Sprinkle with the rest of the deep fried dry chilly and Sichuan pepper, spring onion.
+
 5.另起鍋熱適量油，再放入糊辣油燒熱。
+
+Smoking hot oil plus oil from deep fried dry chilly and Sichuan pepper. Pour on the dish. Decorate with sesame, coriander, joy of garlic. 
 
 6.取成品碗撒上糊辣渣、蔥花，接著沖入上步驟糊辣油，最後再放上白芝麻、香菜、蒜苗末即完成。
 
