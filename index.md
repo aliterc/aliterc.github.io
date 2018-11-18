@@ -92,6 +92,31 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 水煮牛肉麵【郭主義】
+
+![img](https://allenneptune.files.wordpress.com/2018/11/27-1.jpg)
+副食材
+
+關廟細麵3把、牛小排燒烤片200克、薑末10克、蒜末10克、土芹菜末30克、蒜苗末20克、香菜5克、蔥花15克、黃豆芽菜60克、白芝麻1大匙、糊辣渣2大匙、雞高湯800c.c.
+
+調味料
+
+糊辣油3大匙、辣豆瓣醬1大匙、糖1茶匙、米酒2大匙、醬油1大匙、花椒油1/2大匙、辣油1大匙、白胡椒粉
+
+步驟
+
+1.起滾水鍋，放入關廟麵煮熟後撈出至成品碗中。
+
+2.起深炒鍋，放入牛小排將兩面煎香後取出，備用。
+
+3.同上鍋，爆香糊辣油、薑末、蒜末，放入辣豆瓣醬炒勻，接著加入高湯，調入花椒油、辣油1/2量、糊辣渣1/2量、黃豆芽、米酒滾煮入味。
+
+4.同上鍋，調入白胡椒適量、糖1茶匙、醬油1大匙提味，接著加入土芹菜末、牛燒烤片滾煮熟後即可盛入成品碗中。
+
+5.另起鍋熱適量油，再放入糊辣油燒熱。
+
+6.取成品碗撒上糊辣渣、蔥花，接著沖入上步驟糊辣油，最後再放上白芝麻、香菜、蒜苗末即完成。
+
 - 1114 Bring existing websites from a remote server to your local site root
 
 Learn how to establish a connection to a website's remote server and download the files to your computer, to edit in Dreamweaver.
