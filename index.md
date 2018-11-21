@@ -143,6 +143,8 @@ Smoking hot oil plus oil from deep fried dry chili and Sichuan peppercorn. Pour 
 
 6.取成品碗撒上糊辣渣、蔥花，接著沖入上步驟糊辣油，最後再放上白芝麻、香菜、蒜苗末即完成。
 
+![img](https://allenneptune.files.wordpress.com/2017/11/11_e794bbe69dbf-1_e794bbe69dbf-1.jpg)
+
 - 1114 Bring existing websites from a remote server to your local site root
 
 Learn how to establish a connection to a website's remote server and download the files to your computer, to edit in Dreamweaver.
