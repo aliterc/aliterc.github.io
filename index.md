@@ -94,6 +94,10 @@ I have taught Photoshop in school once. Our school was opposite China Petrol Uni
 
 - 水煮牛肉麵【郭主義】
 
+Waterboiling beef noodle 
+
+Cheap ingredients and home cooking essential! 
+
 ![img](https://allenneptune.files.wordpress.com/2018/11/27-1.jpg)
 fx_flavor25 12/29/06 187048 Chantilly, Va Post Photos by Rich Lipski Sichuan Village Restaurant, with some hot food dishes, (top L-R) Sichuan street dumplings, twiced cooked tofu and dan dan noodles, (bottom L-R) mapo fish fillet, cumin lamb and chengdu beef. Filed remotely  (Photo by Rich Lipski/The Washington Post/Getty Images)
 
