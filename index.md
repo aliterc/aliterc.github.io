@@ -150,8 +150,6 @@ Add un peu de ground white pepper, 1tsp sugar, 1 tbs soy sauce, celery, beef les
 
 Smoking hot oil plus oil from deep fried dry chili and Sichuan peppercorn. Pour on the dish. Decorate with couvrir avec sesame, coriander, joy of garlic. Clean the counter, burner and splashback regularly during cooking. 
 
-![img](https://allenneptune.files.wordpress.com/2017/11/11_e794bbe69dbf-1_e794bbe69dbf-1.jpg)
-
 - cbflist
 
 courgette tart with roasted tomato coulis
