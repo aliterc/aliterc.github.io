@@ -3802,14 +3802,362 @@ https://www.mrporter.com/journal/mr-porter-eats/nordic-cooking-in-the-wilderness
 
 父亲心脏出了问题。博士要捐心脏。
 
+### 01
+
+5.13
+
+INT. NEW CASTLE- UNIVERSITY HOSPITAL NIGHT                                                       20??
+
+School hospital: patients separated by curtains, sleepy, silent. ZENG, 30s, a Chinese teacher with a doctor degree in Greek, is sick on bed. He is wearing a shirt. DM, 20s, a Chinese student who has degrees in criminology and anthology. He is ZENG’s boyfriend. He wears casual. Lights on and off, some problems with the electricity. 8: 50 p.m..
+
+DM
+
+Monsieur, you look rich…
+
+(he touches ZENG’s Armani blazer)
+
+What do you desire? Here’s le cart.
+
+ZENG
+
+De l’eau, please. I can’t eat anything actually.
+
+DM
+
+Or, I go to buy some snacks, biscuits…
+
+ZENG
+
+Food, proper food, no chocolate bar, no crisp. I need food.
+
+DM
+
+O.K., I go back home to make you some Kong Bo chicken with rice. Just chicken breast meat. It should be O.K. with your treatment.
+
+ZENG
+
+Hot food, make it hot.
+
+INT. NEW CASTLE- UNIVERSITY HOSPITAL LATER                                                       20??
+
+School hospital: patients separated by curtains, sleepy, silent. Zeng opened the lunchbox wrapped by magazine pages with Gary Oldman’s photo. DM is around. A neighbor is woken up by the smell. 9:50 p.m.. Zeng is going to eat. His teeth are white. His muscles are strong. The two hold hands. DM just takes a shower and he is wet with drops down. Zeng has anal bleeding. He picks the chilies out. After having the dinner, he checks his watch showing DM it’s his sleeping time, then opens Facebook on phone. DM picks things up, leaves.
+
 ### 02 YOUNG CHINESE FINANCIER FINALLY MET HIS BRITISH LOVER IN AN ACCEPTABLE WAY.
 ### DOCTOR IN CLASSIC DIED LEAVING HIS SON ADOPTED.
 ### 03 A YOUNG WOMAN WHO HAD NO PERSONAL LIFE.
 ### BANKRUPT MAN FOUND HIS FATHER A GAY.
 ### A SCHOOL TEACHER LOOKED AFTER HIS SICK WIFE.
 ### 05 YOUNG CHINESE FINANCIER’S REAL REASON OF DEATH REVEALED.
+
+Billy Yin got very drunk after a dinner with some
+friends. They told him he could drink like the Tianchi,
+a glacier lake in Tianshan mountain. Actually, he
+was high after two shots, and couldn’t sleep because
+of vomiting and stomach ache after five shots. Hours
+later, he found himself in the middle of desert and no
+one was around.
+
+He needed a bottle of Sprite as it was in the ad. He
+wanted to jump into the sands like jumping into a
+swimming pool. No, he found himself the clearest
+moment in his life: he needed insurance and rescue
+service from a fortune 500 company, might called
+Allianz or something, French company.
+
+He had nearly vomited all the things in his stomach
+and things he tried to eat to balance the alcohol.
+Grains could work but not more liquid. It was bitter, it
+was from his body. He doubted if he could pass this all
+by himself. It’s the side effects of drinking that made
+him nearer to death, not the crime of throwing him
+into the middle of dessert.
+
+After hours of lying there communicating with stars,
+one after another, he managed to sit straight. He
+needed water. Then he needed a shelter. There was
+no water in the middle of Chile’s south most mountain
+region. There were pumas around in day break. They
+were sleeping. He silently passed them without waking
+up them. Winds were dry. Horses were running. It’s
+hard to tame them. He was not far from a road and
+with the road, there was a water tunnel like those you
+could see in Beijing from Miyun dam with signs ‘no
+swimming’.
+
+He dared not to get any closer as from his experience
+these tunnels could be deep and he could not swim.
+Houses were abandoned. He got into one but, the
+walls were damaged. Penguins moved into his sight,
+one, two, three, thousands of them. They rubbed their
+bellies with the sands.
+
+Billy Yin was half robot so he thought he could survive
+without food and if the internet was still connected,
+he must have been located and known about his
+situations. So he chose to stay inside the damaged
+house with nothing for a while to see if someone would
+come. Silence, silence, still silence. With no tools he
+could not get any water from the tunnel. He was so
+weak. He fell asleep again and resisted to wake up. So
+bad dreams came one after the other. He finally found
+that sleeping was like choosing to die.
+
+No one came. His robot part began to fall off from his
+body. His eyes got no four screens but only one screen
+left showing a stock charts with the line climbing or
+dipping every second. His fingers were of no battery so both the keyboard one and the pen one
+could not move at all. He must have stayed without fuel for three days and that was the limit
+when his robot part began to not work well with his bio part. He might get exploded if the sun
+would keep being hot like that.
+
+His bio part began to function by itself. He wanted to rub himself to make some sperm. It was
+very urgent. His fingers didn’t work. He couldn’t let it cool down itself. He began to cough and
+vomit again, which spoiled the fun and his penis looked small and weak like it should be being
+in a car chasing.
+
+He found a tap. He opened it and water was running. He then found his clothes were tore and
+dirty. Mosquitos and insects were all around. He took off all his clothes and soaked them in a
+container with water.
+
+A police stopped by. He asked all the things and found him clean clothes. Then he called Billy’s
+landlord who was on a vocation to an island. Free Chilean food cooked by the police’s wife.
+
+Billy Yin was still having the hope he could be repaired. He tried all the stores for the energy he
+needed to restart his machine part. He couldn’t breath and the steel, plastic, metal things full
+of wires and chips were not nice to carry if they were like bricks. He had passed the three days
+limitation of no fuel. His machine part couldn’t be restarted. He phoned Dr Wong from Siemens.
+Dr Wong said, think, no panic. If half of you are not functioning, you still have another half. Your
+brain is off, you still have a heart. As long as it beats, you could not die. Vampires slept during
+day and eat humans during nights. You could be a night comer instead of a day traveler. You
+chose yourself again as you had wished to be a robot last time. Pray, hope, wish for it harder and
+it will come true.
+
+I want to be an Iron man. Billy Yin said. I don’t want a heart. I want an energy source that would
+not die.
+
+No, you can’t. You need a human brain to manage a body like that. Your little miserable life will
+end and eternality will come to you. While, not all people could bear the limitations of living in
+the dark. Your weakest point will be noon time. You have to sleep with soil in a coffin. Do you
+really want to go against the nature again? It is cursed.
+
+What’s the difference? I had always been sleepless and lonely in one morning after another
+Oh… when you went back to China you need to ask for night shifts and stick with only night
+shifts. You need to kill yourself to announce your physical death and stopped using your ID.
+There are professional people hunting vampires, so you can’t be caught. You will be chased till
+the end of you day, which would be an endless narrow road. Long life for centuries would be
+very lonely. You will like pandas watching humans born and die. We will look like insects and
+flies in your eyes.
+
+Give me salty water. Leave me if you can. Radios were playing songs by anonymous singers.
+A home high on the mountains…
+
+Billy Yin suddenly noticed that when he woke up in the middle of the dessert, he communicated
+with stars which were at times covered by clouds pushed by harsh winds, like a shuttle bus with
+light off moving in a midnight airport with orange lights, passing one street lights and another
+when it moved on highway between terminals.
+
+Life is short. We kill ourselves in thousands of ways. Watching so many lives passing by in our
+life is sometimes like walking through the valley of death, a long narrow path. Only me could
+live forever. Billy Yin thought like this when he jumped from the highest tower in Shanghai and
+hallucinating that his dead mother was around.
+
+Vampires could jump, run, and fake death. He slept for another few hours in the hospital. Dr
+Wong picked him up. From the time he decided to be affected and share blood with a bunch
+of AIDS patients, he had months left. Back to China, he bought a life insurance and left a letter
+suing his company for inhuman use of employees. He then technically killed himself.
+
+Dr Wong, with a cloth that covered himself fully, burnt Billy Yin in his lab. Siemens destroyed
+Billy Yin to hide a failure in its experiment.
+
 ### MIDDLE AGE BUSINESSMAN PUT IMPORTED IDOLECENT ON SITE.
+
+He was driving on the highway. There was news saying that Russia was closing pipe line again to Wales.
+People owning a car all rushed into local stations to buy fuels. He used to drive in France, where he
+worked for American companies and shipped things globally.
+
+He drove a Ford, which was his normal day bike instead of walking. He drove for a living. He drove trunks.
+It was like his bike for tour de France. He never slept since his wife died, which means he actually could
+work for 24 hours a day if he could maintain the concentration on the wheels and roads.
+
+Miss Lin was a Chinese girl working in a local takeaway. She liked to chat with local guests. She liked to
+sleep with them. Old men, young men, couples, she slept with whoever wanted to sleep with her, whoever
+who didn’t mind her skin color and appearance. She was wild at heart.
+
+Mr Muffin was on the way to a church service in Ningbo, a city hours from Shanghai by train or by bus.
+The clergyman was taking lengthily up there. It was crowded. From the steps of a Sunday service, it was
+all the same. The church staff were wearing special made clothes. Mr Muffin took the wrong train. So he
+missed the service when he finally arrived at the riverside.
+
+He stopped the car, got into a shop named Gabriel. It was newly furnished. Miss Lin just got out of the
+shop with her cheap washing powder back to her boss’s house. She had to sleep with the boss as a second
+wife because he took her out of China as a home servant. He always came to Gabriel for Japanese food. He
+felt a genital opened to him when she passed him. So he stopped, gave her a look. She was wearing a Zara
+trousers which had lost the color a little, a H&M blue shirt with lined patterns very loose, and a bra. She
+looked like a virus. Her hair was half white and like a kind of hard brush you used to clean the bathroom.
+You could smell the sauces, oil on her. While, her smile was no different with the British. She had a nice
+makeup on her eyes. Her lips were like honey dropping and her breast was like two balloons filled with
+milk.
+
+This reminded him of his mum who had a big ass and he used to sleep on her thighs. He was kind of sick
+these days. He needed mum and mum was not alive any more. Dad used to beat mum when he got really
+drunk. Mum always said, men, they had to work to feed us. When he waved his fists to his father, he was
+kicked away to the corner.
+
+Mum hooked up with a driver finally and remarried and was gone from his life. He was raised by his
+drunk Russian father who slipped on roadside with a bottle of whisky and killed himself. He had a
+brother but he could hardly remember him. Maybe he was a gay and was somewhere in Canada’s
+forests with another wave of British immigrants.
+
+Mr Muffin was in Ningbo to attend church and find a club called Sanctuary, a place where foreigners
+in the city gathered for music and drinks. The Sanctuary was not an open club and didn’t have seats
+outside. He found that despite low payment as low as 3000 renminbi per month, foreign teachers were
+still willing to work here. To build Tantaras, something in the hell, he had to invite something holy.
+While, he found a big whole in this country he had been in for nearly 50 years.
+
+People in Ningbo like a few sculptures in their buildings. He asked to make one of Jesus’s and one of
+Mary’s. He got the two and prepared to transport them to the sites far away in central China’s mountain
+regions. The sculptures were not that good. They actually looked like anyone on the street. When the
+UPS guy asked him what were these as laws said this and that, he answered he was student in art school
+and these are his works, After a night’s transportation, they were damaged when arrived. Mr Muffin
+ordered two from Italy online. He used UPS again and the shipping guy was the Welsh man.
+
+Welsh man shipped the two sculptures from Italy to Southampton then to Canada then to China. It took
+him a month to ensure he slept with them as Mr Muffin requested. Then when he arrived the border
+control near Pudong airport, got into another trunk with the goods, he was told he needed a local
+driving license. Mr Muffin gave him a fake one.
+
+He could get the Chinese girl’s genitals out of his head. It opened and closed, opened and closed,
+sometimes was peeing. They said she was the ugliest flower in Cardiff’s meat market. Videos of her
+were online. Miss Lin slept him. She said you have Russian blood, do you? He answered briefly but
+proud, yes, my father is Russia. She smiled, I like Russians, they are good looking. He said nothing. She
+then said I got a place nearby, could we have some time spent alone in a hotel room, not far, there is a
+B&B there you see. She then hesitated that if she should proceed to body contact. FUCK ME. She began
+to give him the signal. He solved the problem just in the woods with her. Ten minutes. She said to him
+My name is Lin xx, bye, leaving him a takeaway card.
+
+He really was thinking of mum. He felt sick. He needed mother to fall asleep sometimes but after his
+wife died in a train crash, he had no one to help him to sleep. He still needed to drive the trunk from
+Shanghai’s import harbor to the west most of central China, where trees were green and rocks were
+gray. His hair was blondie as if they where white. His Chinese was absolutely none. Mr Muffin was with
+him and it took two days. Mr Muffin could hardly speak English. They used gestures to communicate.
+After they had put the sculptures of Jesus and Mary up there, local government came. Wars were all
+around. Every old province had been a sperate power. Mr Muffin said if you don’t want bigger wars
+come, please don’t ask anything. Local government said I know you you are the Dwarf businessman on
+TV. Mr Muffin said yes I was on TV. Welsh man was drinking again, with small suchis in his right hand
+and a cup of wine on the other. His hair was so shinning that the whole mountain region people said
+there was a new gold mine found in the secret project. Local government though it was too shinning,
+and they felt uncomfortable to see two suns, so went back to fetch for sun glasses. It was Mr Muffin’s
+wrist watch.
+
+Night. Welsh man was completely drunk. The mountain was silent. He slept for the first time after
+years. Night sphere. The white Jesus and Mary were in dim light. Stars. Milky way, Mr Muffin was not
+sleeping, He had a big hole in the hell to fill in. He paid the Welsh man online. Then he knew that the
+foreign man had experienced nightmares recently, unclean things that you can’t rid of in your mind.
+He took off the Welsh man’s trousers and pants, put some local herbs on it.
+
+Sunshine and rain. Mr Muffin disappeared into the busy construction site. Welsh man decided to stay
+till Mr Muffin finished the project as he thought he had no root in Wales left, and Mr Muffin could be
+his companion somehow. Mr Muffin was rich, understanding, and extremely calm. Mr Muffin said he
+was too busy to carry a foreign guy around, but the translator translated: Mr Muffin said he liked to suck
+your dick.
+
+Over.
+
 ### OLD PROFESSOR MET HIS GRANDSON AND FRIENDS.
+
+Bitter melon has two famous versions in movies. One is in Words of gardens when the boy cooked
+bitter melon, tomato and noodles. The other one might be quite familiar with Chines audience
+when Taiwanese singer and song writer cooked in his first directed movie.
+
+I don’t know how to make cool dishes. While, for vegetables like this, which requires to take the
+seeds off with a spoon, I could do pumpkins.
+
+Salted duck egg yolk with pumpkins
+
+Mr Muffin Tin got the Swedish passport years ago. Every popular music was from Sweden. Mr
+Muffin Tin was in Air and auto. He liked pop music himself when he was prostituting, he always
+turned pop music on while in his daily life, he always sang main stream Chinese songs.
+
+He got along with prostitutes quite well. People with great ability in science always have a big
+appetite. People think like this. Rumors spread like this. While for Mr Muffin Tin, he was very
+cautious with his private life as during the Cultural Revolution, he could be hardly treated well
+as his father was a KMT officer who fled to Taiwan.
+
+He got the job in public restaurants with a very good luck. Or else he could not pass the days of
+being angry towards by other people by just staying at home. Then he shut himself in research
+and a very careful life as people in academic are easier to be get angry with by other people.
+
+Miss Lin was an IELTS teacher in Beijing. She was not a teacher but an assistant to the examiners.
+After five years in the position, she received a call one day which told her that she had been
+chosen by Kent University to be a librarian. She was cooking in her kitchen black beans, peppers
+and bitter melon to for her high school sister. She had never been abroad. She studied French in
+a Beijing school and never though she could talk to a real French in her life.
+
+Five years after the call, she bought a house in Manchester and was a waitress or hostess or
+associator in a restaurant in Kent’s countryside.
+
+In the second call of the job interview, the school that they thought she had done a great job for
+British Council and they asked how much money she had saved. She answered 50000. They said
+that would not be enough. So they offered her a loan and said the job’s pay would be 5000 GBP
+per month which could give her a comfortable life and pay back the loan in three months.
+
+Then in the next part, she got all the documents she needed and went on to a five year long
+contact with Kent University in Kent, leaving her sister and mother and dad.
+
+Mr Fu was in politics as they said. He arrived in Switzerland safely after a scandal. He got no
+money and no friend. He went in to a hostel in Alps. Mr Muffin Tin just had gay sex with a French
+man. Mr Muffin Tin had a 50 year old son stuck in China on a big commercial building project.
+
+He felt empowered and excited as a brand new car. He had been afraid all his life. He should not
+be afraid any longer. The hotel was just a block away from the hostel. It was Christmas. Mr Fu
+was calling everyone he knew in the country to help him. No one would answer him. A Spanish
+roommate just from street the night before was to touch him. Mr Fu was shy about this sort of
+thing. But he was also curious. So he asked the Spanish for a smoke and a night out together in
+a club where he got his hands all on the Spanish. Then on the second day, they rented a house
+and split the bills.
+
+The French man was naked on the sofa. Mr Muffin Tin got out to buy some milk before local
+supermarket was closed. He would be an invited lecture in Kent University in spring. So he
+decided to learn French well with this French boy who was 19 years old till Spring comes. He
+would carry him around Switzerland where he had been to several times. He would mate him
+when he was willing or not. He picked the man from Paris’’s street and could actually treat him
+as a slave, but he had other intentions.
+
+Hopefully in Spring the young French would have been pregnant and bring the young kids by
+himself.
+
+For Mr Fu, he was quite flexible with these things. He didn’t feel it disgusting and unacceptable. Quoting
+James Bond, “how do you know I have never tried gay’?”’ You know, in China, men are divided into big men
+and small men. Small men are servants and big men are public servants. Small men should do everything
+to please big men and sucking dicks is one of the services. Mr Fu had travelled all around the world and
+was not a conservative person.
+
+When Mr Muffin was young and working in a Shanghai factory. He came back home once a week to cook
+for Mr Muffin Tin. He always cooked bitter melon and tomato noodles for his father if his mother was out
+to paly majiang. He knew his father had lots of bitterness that could not be expressed. And though his
+father cooked everyday for his mother, Mr Muffin could feel that there was a tension that could not be
+explained clearly in his parent’s marriage. So though he managed to get the vegetable, red and green sauce
+to each piece of noodle, he still got not clue of what the big thing was there in his parent’s relationship. It
+was until when his father sent him a photo of himself in a gay wedding with a Taiwanese old man that Mr
+Muffin got shocked and explained.
+
+And may his father live long and happy after in Kent. Miss Lin quitted after a week in the job. She felt it
+boring and British were very rude to her. She suddenly could not pay the rent and the loan. Then after five
+years in restaurants, she could tell Chinese students now still her customers that teaching English is not
+a way to survive.
+
+Even when she was living with a cat and his first-floor roommate who was a doctor moved away suddenly
+just because a Chinese moved in, she didn’t tell herself it is the end. She knew it was the beginning of
+another period of life and it had been magical. She got English breakfast with 2 pounds instead of a 30 RMB
+Chinese or American style breakfast she could never afford. She could go to cinemas often with English
+subtitles. She dated a French waiter who just turned 20 and lived with a 73 year old Chinese teacher.
+
+Life is so good. When Mr Muffin Tin was sick on bed himself, his grandson with his girlfriend, with a local
+Chinese businessman Mr Fu whose new restaurant was newly bankrupt and closed, came together to see
+him. They talked lengthily before Mr Muffin Tin fell asleep in afternoon sunshine and smell of roses.
+Mr Muffin said though he was an expert in planes and cars, he never felt relaxed. He was drugged down by
+lots of money related things. Though, he never made himself drunk just because it could be unbearable.
+
 ### 06 YOUNG CHINESE FINANCIER’S SINCEREST WISH. 若い中国の投資家の悔やみの願い。
 ### MIDDLE AGE BUSINESSMAN ON TIGHT SCHEDULE OF HIS PROJECT.
 ### OLD PROFESSOR’S STABLE LAVISH LIFE IN CHINA AND AFTER THAT.
