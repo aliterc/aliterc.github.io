@@ -130,47 +130,25 @@ Cheap ingredients and home cooking essential!
 ![img](https://allenneptune.files.wordpress.com/2018/11/27-1.jpg)
 fx_flavor25 12/29/06 187048 Chantilly, Va Post Photos by Rich Lipski Sichuan Village Restaurant, with some hot food dishes, (top L-R) Sichuan street dumplings, twiced cooked tofu and dan dan noodles, (bottom L-R) mapo fish fillet, cumin lamb and chengdu beef. Filed remotely  (Photo by Rich Lipski/The Washington Post/Getty Images)
 
-副食材
-
 Ingredients: 
 
 ingrédient:
 
 Recette pour 1 personne :
 
-關廟細麵3把、牛小排燒烤片200克、薑末10克、蒜末10克、土芹菜末30克、蒜苗末20克、香菜5克、蔥花15克、黃豆芽菜60克、白芝麻1大匙、糊辣渣2大匙、雞高湯800c.c.
-
 Thin noodles 3 handful- beef slices 200g- ginger 10g en petit dés - garlic l’ail 10g en petit dés - celery 30g en petit dés - joy of garlic 20g en petit dés - coriander coriander 5g- spring onion 15g- bean sprouts 60g- white sesame 1tbs- deep fried dry chili and Sichuan peppercorn 2tbs- chicken stock 800ml
-
-調味料
-
-糊辣油3大匙、辣豆瓣醬1大匙、糖1茶匙、米酒2大匙、醬油1大匙、花椒油1/2大匙、辣油1大匙、白胡椒粉
 
 Oil from deep fried dry chili and Sichuan peppercorn 3 tbs- Sichuan bean paste 1 tbs, sugar sucre 1 tsp, rice wine 2 tbs, soy sauce sauce soja 1 tbs, Sichuan peppercorn oil 1/2 tbs- chili oil 1tbs- ground white pepper poivre du moulin 
 
-步驟
-
-1.起滾水鍋，放入關廟麵煮熟後撈出至成品碗中。
-
 Boiling water. Cook the noodle.
-
-2.起深炒鍋，放入牛小排將兩面煎香後取出，備用。
 
 Meanwhile pendant ce temps, pan fry the beef on two sides. Put aside.
 
-3.同上鍋，爆香糊辣油、薑末、蒜末，放入辣豆瓣醬炒勻，接著加入高湯，調入花椒油、辣油1/2量、糊辣渣1/2量、黃豆芽、米酒滾煮入味。
-
 Turn on the cooker hood. Fry, suer les oignons et l'ail à l'huile d' chili Sichuan peppercorn, oil from deep fried dry chili and Sichuan peppercorn, ginger, garlic, et ajouter le Sichuan bean paste. Mix them well on medium heat. Add chicken stock, Sichuan peppercorn oil, half of the chili oil, half of the deep fried dry chili and Sichuan peppercorn, bean sprouts, rice wine. Bring to boil.
-
-4.同上鍋，調入白胡椒適量、糖1茶匙、醬油1大匙提味，接著加入土芹菜末、牛燒烤片滾煮熟後即可盛入成品碗中。
 
 Add un peu de ground white pepper, 1tsp sugar, 1 tbs soy sauce, celery, beef les rondelles de porc crues, bring to boil again. Pour the soup onto the noodle au fond. Sprinkle with the rest of the le reste de la deep fried dry chili and Sichuan peppercorn, uniformément spring onion .
 
-5.另起鍋熱適量油，再放入糊辣油燒熱。
-
 Smoking hot oil plus oil from deep fried dry chili and Sichuan peppercorn. Pour on the dish. Decorate with couvrir avec sesame, coriander, joy of garlic. Clean the counter, burner and splashback regularly during cooking. 
-
-6.取成品碗撒上糊辣渣、蔥花，接著沖入上步驟糊辣油，最後再放上白芝麻、香菜、蒜苗末即完成。
 
 ![img](https://allenneptune.files.wordpress.com/2017/11/11_e794bbe69dbf-1_e794bbe69dbf-1.jpg)
 
