@@ -205,7 +205,7 @@ pocher des fruits au cirop
 
 0704
 
-0705/
+0705/ STIR FRYING
 
 /0706
 
@@ -247,7 +247,7 @@ pocher des fruits au cirop
 
 0725
 
-0726/
+0726/swiss roll
 
 /0727 Ouvrir et décoquiller une coquille Saint Jacques
 
@@ -261,7 +261,7 @@ pocher des fruits au cirop
 
 0801
 
-0802/
+0802/溜丸子
 
 /0803
 
@@ -275,7 +275,7 @@ pocher des fruits au cirop
 
 0808 gigot d'agneau
 
-0809
+0809/ spicedskeweredlamb
 
 /0810
 
@@ -303,7 +303,7 @@ pocher des fruits au cirop
 
 0822
 
-0823/
+0823/Sichuan spicy chicken
 
 /0824
 
@@ -532,6 +532,20 @@ Il s’agit de fines lamelles de boeuf et quelques minutes au wok suffisent. AUD
 ???? Pot-au-feu
 
 ???? Tournedos au porto et tartare de boeuf
+
+Waterzoi de poulet
+
+![img](http://chefsimon.com/gourmets/chef-simon/recettes/waterzoi-de-poulet--2)
+
+Cuire un concassé de tomates
+
+Moulage des chocolats
+
+Fenouil
+
+Millefeuille
+
+La bisque de homard
 
 - 1114 Bring existing websites from a remote server to your local site root
 
