@@ -159,7 +159,7 @@ L’ancien dirigeant du club marseillais avait été mis en examen en 2016 pour 
 
 EN-FR food words+
 
-0615 charlotte aux peches
+/0615 charlotte aux peches
 
 crème bavaroise
 
@@ -173,7 +173,157 @@ pocher des fruits au cirop
 
 0619 Cake au citron et son d'avoine IGbas
 
+0620
+
+0621/
+
+/0622
+
+0623
+
+0624 Sushis moulés
+
+0625 crepes soufflées
+
+0626 Croissants et pains au chocolat – Le tourage en portefeuille
+
+0627
+
+0628/
+
+/0629 Saucisson en brioche
+
+0630
+
+0701
+
+0702
+
+0703
+
+0704
+
+0705/
+
+/0706
+
+0707
+
+0708
+
+0709
+
+0710
+
+0711
+
+0712/
+
+/0713
+
+0714
+
+0715
+
+0716
+
+0717
+
+0718
+
+0719/
+
+/0720?? Saucisson en brioche
+
+0721
+
+0722 Buche de Noel au chocolate: le biscuit roulé
+
+0723 Buche de Noel au chocolate: former la buche
+
+0724 Sibérienne de fruits de la passion
+
+0725
+
+0726/
+
+/0727 Ouvrir et décoquiller une coquille Saint Jacques
+
+0728 Boulettes de boeuf sauce Madère
+
+0729
+
+0730
+
+0731
+
+0801
+
+0802/
+
+/0803
+
+0804
+
+0805
+
+0806
+
+0807
+
 0808 gigot d'agneau
+
+0809
+
+/0810
+
+0811
+
+0812
+
+0813
+
+0814
+
+0815
+
+0816/
+
+/0817
+
+0818
+
+0819
+
+0820 Soupe à l’oignon gratinée
+
+0821
+
+0822
+
+0823/
+
+/0824
+
+0825
+
+0826 le tourage de la pate levée fauilletée
+
+0827
+
+0828
+
+0829
+
+0830/
+
+/0831
+
+0901
+
+0902
+
+0903
 
 0904 mousse chocolat noir
 
@@ -181,19 +331,101 @@ pocher des fruits au cirop
 
 0906/ slow cooked porc et rice
 
-0907 legumes
+/0907 legumes
+
+0908
+
+0909
+
+0910
+
+0911
+
+0912
+
+0913/
+
+/0914
 
 0915 l'oeuf confit + tutorial sur l'utilisation des particles simples dans realflow
 
 0916 caviar d'aubergine 
 
-0921 embeurree de chou
+0917
+
+0918
+
+0919
+
+0920/
+
+/0921 embeurree de chou
 
 0923 ravioles de gambas
 
 0924 meuniere de fruits de mer aux legumes vapeur
 
-0928 pour la pata a ravioles
+0925
+
+0926
+
+0927/
+
+/0928 pour la pata a ravioles  Pour la garniture
+
+0929
+
+0930
+
+1001
+
+1002
+
+1003 La cuisine thaï est riche d’influences indonésiennes, vietnamiennes, japonaises, chinoises ou encore indiennes. Elle offre ainsi une immense variété de plats appréciés dans le monde entier. Le riz et la noix de coco sont des ingrédients récurrents dans la cuisine thaï tout comme les plantes aromatiques, les condiments et les épices, ce qui en fait une cuisine particulièrement parfumée, voire parfois explosive par l’utilisation intense du piment.
+
+1004 
+
+CBF 1:35-2:01
+
+at the tourist office/1:36/ travellinig by public tranport/ seeking help at the pharmacy/ langauge review in a party setting/ linguistic diversity in France/ the present tense/
+
+/1005
+
+1006
+
+1007 Dans un wok faire revenir l’oignon et l’ail. AUDIO GUIDE
+
+Quand ils sont légèrement dorés ajouter la viande. AUDIO GUIDE
+
+Attention la viande ne doit pas être trop cuite. AUDIO GUIDE
+
+Il s’agit de fines lamelles de boeuf et quelques minutes au wok suffisent. AUDIO GUIDEAUDIO
+
+1008
+
+1009
+
+1010
+
+1011/
+
+/1012
+
+1013
+
+1014
+
+1015 Techniques appliquées à la cuisson des légumes
+
+1016 Clafoutis aux cerises
+
+1017 Pommes au four
+
+1018 Découper un disque de papier sulfurisé/
+
+/1019
+
+1020
 
 1021 2:18
 
@@ -201,9 +433,9 @@ pocher des fruits au cirop
 
 1023 2:20 
 
-1024
+1024 
 
-1025
+1025/
 
 /1026 legumes a la grecque 
 
@@ -239,7 +471,15 @@ pocher des fruits au cirop
 
 1111 minis croissants
 
+1114 Blancs de turbot sur blancs de poireaux
+
 1116 pizza
+
+1116 Pizza- 2
+
+1117 Parchemin en pâte d’amande
+
+1118 Cupcakes chocolat noir
 
 1125 pain perdu
 
@@ -279,7 +519,17 @@ pocher des fruits au cirop
 
 ???? croissants et pain au chocolate- le tourage en portefeuille 2/3
 
+???? Légumes à la grecque
 
+???? Oeufs pochés
+
+???? Scones moutarde et mimolette
+
+???? Poule au pot
+
+???? Pot-au-feu
+
+???? Tournedos au porto et tartare de boeuf
 
 - 1114 Bring existing websites from a remote server to your local site root
 
