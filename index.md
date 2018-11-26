@@ -173,6 +173,111 @@ pocher des fruits au cirop
 
 0619 Cake au citron et son d'avoine IGbas
 
+0808 gigot d'agneau
+
+0904 mousse chocolat noir
+
+0905 clafoutis aux abricots et au chocolate
+
+0906/ slow cooked porc et rice
+
+0907 legumes
+
+0915 l'oeuf confit + tutorial sur l'utilisation des particles simples dans realflow
+
+0916 caviar d'aubergine 
+
+0921 embeurree de chou
+
+0923 ravioles de gambas
+
+0924 meuniere de fruits de mer aux legumes vapeur
+
+0928 pour la pata a ravioles
+
+1021 2:18
+
+1022 2:19 
+
+1023 2:20 
+
+1024
+
+1025
+
+/1026 legumes a la grecque 
+
+1027 les macarons 
+
+1028 les macarons
+
+1029 pain d'epices
+
+1030 la brioche
+
+1031  
+
+1101 dinde aux marrons farcie/ fon gan
+
+/1102 abaisser une pate
+
+1103 pate brisee
+
+1104 fondue d'endives
+
+1105 croissants et pains au chocolat- la detrempe
+
+1106 poulet saute au wok
+
+1107 saumon laque
+
+1108/ gang pa-nang
+
+1109 flans de quinoa rouge
+
+1110 carpaccio de saint jacques et caviar 
+
+1111 minis croissants
+
+1116 pizza
+
+1125 pain perdu
+
+1126 crumble pommes myrtilles
+
+???? tart bourdaloue
+
+???? pizza 2
+
+???? parchemin en pate d'amande 
+
+???? brioche
+
+???? chaussons aux pommes
+
+???? pains au lait
+
+???? tarte tatin
+
+???? paris- brest
+
+???? clafoutis aux cerises 
+
+???? waterzoi de poulet
+
+???? moulage des chocolats 
+
+???? cuire un concasse de tomates
+
+???? fenouil 
+
+???? millefeuille 
+
+???? la bisque de homard
+
+???? soupe a l'oignon gratinee
+
+???? croissants et pain au chocolate- le tourage en portefeuille 2/3
 
 
 
