@@ -333,7 +333,7 @@ pocher des fruits au cirop
 
 0906/ slow cooked porc et rice
 
-/0907 legumes
+/0907 Techniques appliquées à la cuisson des légumes
 
 0908
 
@@ -345,7 +345,7 @@ pocher des fruits au cirop
 
 0912
 
-0913/
+0913/味噌拉麺
 
 /0914
 
@@ -359,9 +359,11 @@ pocher des fruits au cirop
 
 0919
 
-0920/
+0920/ おにぎり（御握り）
 
 /0921 embeurree de chou
+
+![img](http://res.cloudinary.com/hv9ssmzrz/image/fetch/c_fill,f_auto,h_200,q_auto,w_340/http://s3-eu-west-1.amazonaws.com/images-site-chefsimon-eu/image8/embeurree-de-chou-6.jpg)
 
 0923 ravioles de gambas
 
