@@ -167,6 +167,8 @@ pocher des fruits au cirop
 
 0616 cote de boeuf grillée
 
+![img](http://res.cloudinary.com/hv9ssmzrz/image/fetch/c_fill,f_auto,h_200,q_auto,w_340/http://s3-eu-west-1.amazonaws.com/images-site-chefsimon-eu/image8/cote-de-boeuf-grillee-6.jpg)
+
 0617 banh mi aux boulettes épicées
 
 0618 ratatouille
@@ -175,7 +177,7 @@ pocher des fruits au cirop
 
 0620
 
-0621/
+0621/BITTER MELON
 
 /0622
 
