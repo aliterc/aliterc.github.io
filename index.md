@@ -367,15 +367,17 @@ pocher des fruits au cirop
 
 0923 ravioles de gambas
 
-0924 meuniere de fruits de mer aux legumes vapeur
+![img](http://res.cloudinary.com/hv9ssmzrz/image/fetch/c_fill,f_auto,h_200,q_auto,w_340/http://s3-eu-west-1.amazonaws.com/images-site-chefsimon-eu/image6/ravioles-08.jpg)
+
+0924 Meunière de fruits de mer aux légumes vapeur
 
 0925
 
 0926
 
-0927/
+0927/Bao buns
 
-/0928 pour la pata a ravioles  Pour la garniture
+/0928 Ravioles de gambas
 
 0929
 
@@ -391,13 +393,17 @@ pocher des fruits au cirop
 
 CBF 1:35-2:01
 
-at the tourist office/1:36/ travellinig by public tranport/ seeking help at the pharmacy/ langauge review in a party setting/ linguistic diversity in France/ the present tense/
+at the tourist office/1:36/ travellinig by public tranport/ seeking help at the pharmacy/ langauge review in a party setting/ linguistic diversity in France/ the present tense/Gang Pa-nang 
 
 /1005
 
 1006
 
-1007 Dans un wok faire revenir l’oignon et l’ail. AUDIO GUIDE
+1007 Bo bun
+
+![img](http://res.cloudinary.com/hv9ssmzrz/image/fetch/c_fill,f_auto,h_200,q_auto,w_340/http://s3-eu-west-1.amazonaws.com/images-site-chefsimon-eu/images10/bo-bun-03.jpg)
+
+Dans un wok faire revenir l’oignon et l’ail. AUDIO GUIDE
 
 Quand ils sont légèrement dorés ajouter la viande. AUDIO GUIDE
 
