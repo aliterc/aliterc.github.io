@@ -535,7 +535,7 @@ Il s’agit de fines lamelles de boeuf et quelques minutes au wok suffisent. AUD
 
 Waterzoi de poulet
 
-![img](http://chefsimon.com/gourmets/chef-simon/recettes/waterzoi-de-poulet--2)
+![img](http://res.cloudinary.com/hv9ssmzrz/image/fetch/c_fill,f_auto,h_200,q_auto,w_340/http://s3-eu-west-1.amazonaws.com/images-site-chefsimon-eu/image5/waterzoi-de-poulet-5.jpg)
 
 Cuire un concassé de tomates
 
