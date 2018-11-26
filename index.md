@@ -431,7 +431,7 @@ Il s’agit de fines lamelles de boeuf et quelques minutes au wok suffisent. AUD
 
 1017 Pommes au four
 
-1018 Découper un disque de papier sulfurisé/
+1018 Découper un disque de papier sulfurisé/ Pan fried beef with scrambled eggs
 
 /1019
 
@@ -445,7 +445,7 @@ Il s’agit de fines lamelles de boeuf et quelques minutes au wok suffisent. AUD
 
 1024 
 
-1025/
+1025/NON-BUDDHISTS’ CASSEROLE
 
 /1026 legumes a la grecque 
 
@@ -467,29 +467,51 @@ Il s’agit de fines lamelles de boeuf et quelques minutes au wok suffisent. AUD
 
 1104 fondue d'endives
 
+![img](http://res.cloudinary.com/hv9ssmzrz/image/fetch/c_fill,f_auto,h_200,q_auto,w_340/http://s3-eu-west-1.amazonaws.com/images-site-chefsimon-eu/image9/fondue-d-endives-6.jpg)
+
 1105 croissants et pains au chocolat- la detrempe
 
 1106 poulet saute au wok
 
-1107 saumon laque
+![img](http://res.cloudinary.com/hv9ssmzrz/image/fetch/c_fill,f_auto,h_200,q_auto,w_340/http://s3-eu-west-1.amazonaws.com/images-site-chefsimon-eu/image9/bouillon-pho.jpg)
+
+1107 **saumon laque**
 
 1108/ gang pa-nang
 
-1109 flans de quinoa rouge
+/1109 flans de quinoa rouge
 
 1110 carpaccio de saint jacques et caviar 
 
 1111 minis croissants
 
+1112
+
+1113
+
 1114 Blancs de turbot sur blancs de poireaux
 
-1116 pizza
+1115 Pâte à pizza/ 
+
+/1116 pizza
 
 1116 Pizza- 2
 
 1117 Parchemin en pâte d’amande
 
 1118 Cupcakes chocolat noir
+
+1119 Lasagnes de légumes
+
+1120 Chaussons aux pommes
+
+1121 Pains au lait
+
+1122 Tarte Tatin/Waterboiling beef noodle
+
+/1123 Paris-Brest
+
+1124 Clafoutis aux cerises
 
 1125 pain perdu
 
