@@ -4694,11 +4694,14 @@ lots of money related things. Though, he never made himself drunk just because i
 ### 06 YOUNG CHINESE FINANCIER’S SINCEREST WISH. 若い中国の投資家の悔やみの願い。
 ### MIDDLE AGE BUSINESSMAN ON TIGHT SCHEDULE OF HIS PROJECT.
 
+Rewritten
+
 Mistakes befell Tartarus under construction: explosion in B deck ended with death roll of workers. This would be his debut in estate market in china. He was not a rookie embarking on a new career. The insurmountable problem was government put a deadline on this government project. To get coups, he ran the project 24 h a day, with three switches who were local farmers sleeping on site or drinking, spending without sleep before work: a camera just showed water pouring into decks in such an accident. The design was industry leading, the complexity of building was boxes of tricks: they emptied an egg then put a city in. Alarms rang, gates closing, workers escaping, one could see others running under their feet through the narrow steel made paths and stairs. Rousing speeches should be given by the director, so some avoided to eat in the onsite catering. As one of the workers complained afterwards.  
 
 ### OLD PROFESSOR’S STABLE LAVISH LIFE IN CHINA AND AFTER THAT.
 
-Rewritten 
+Rewritten
+
 plank entrenched perception whoop fortitude
 
 Cheapskate is a miserly person. He agitated the water to mixed the spices well. Debunking the high fame of Chinese cooking, he used egg, chicken leg, prawns as the three things needed. In a symposium during a fluids tech conference, everyone was asked to bring some food. His gloves were white with blue stitching, which were made by himself. In the rare known French movie, a pair of swans were feeding by upending. The resources left in the river were dwindling to a trickle so they had to speed up the process of catching and eating. He was renowned for his ways of getting bargains at groceries and butchers. He wanted to express his feeling towards him who just trampled down his fence. The young men liked harsh, draconian, severe rules he put on them in their relationships. They ripened beautifully. Building up the organic farm had not been easy, says Mr Slave, who worked in the school’s garden, biting into one of the juicy green and red-flecked fruits. Through the teeming thoroughfares of central Paris the food company drove short but stocky young scientist who were among the loyalists to the slavery farm in Kent.
