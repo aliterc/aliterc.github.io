@@ -92,6 +92,133 @@ I did want to have a film study art degree. I got practical training as a newspa
 
 I have taught Photoshop in school once. Our school was opposite China Petrol University. My dad had his own invention of a big machine. I could lead teams to sell things, organise team to shot videos. My Phsycology, Crisis management were good.
 
+- 30
+
+1130-1206
+
+Vol. 30 forest
+
+Billy yin
+-
+One day morning, yin found his skin falling off. He didn’t put the skin back but watched his heart pumping oxygen into his blood for no less than one hour. He took out the tooth brush, put toothpaste on it, then brushed his teeth until two minutes. He took out his teeth one by one, they were beautiful but empty inside. His skin was full of scars and spots. He cut his hair and beard, then wore the skin back on his muscles. He took out his eyeballs, he just watched porn, he would like to be blind now. No matter how hard he tried, he could not give the right interpretation of human’s sex behavior. Josh said, cream on toast. Yin just watched porn, making himself arouse for a while, blood circulation speeding, muscle not cold, joint not cold, like talking to a long lost friend like he had never left. Washing feet was releasing the busy and tired bones which lacked care. How much money he would need to pay for mistakes like Mr Muffin did as a single man. He made a calculation, income just met his food and clothes. Sadly, he found he needed a girl to help with food but could not afford. I have to continuing working, washing shoes after work, eating burgers on subway, rubbing myself for a long time. He thought. That was his city life. Now he is far from city beyond touch, frontier, fighting with chimpanzees, watching stars replace daytime then sunrise and sometimes the news. Years ago he put chicken bones under a tree, wishing there would be a tree of roasted chicken. After years, bones are still bones, tree is still the tree, the money spent would never come back. So he must not stop, get sick, nor pay for a girl until he could. He buried himself at night, washed all the dirt, opened curtains of the closet of a hidden Christian, letting the sun into his eyes, embracing a new day. The sun is no longer there: stars falling in the background telling us we are spinning in chaos at nowhere. When hope feels itself failed, that would a rescue plan of counting by 10000. So cold, billy yin wore the leather jerkin, walked his morning walk in the sand with a smoke.
+
+Mr muffin
+Recede bare bustling haggling vultures prone degraded excess jostle
+
+Chef Dou found that her tall, lovely financier husband was receding. He was bare from waist up, looking for his shirt. She bustled herself into the kitchen, which cost her husband a lot. If existence is a question we avoid to ask, human haggling over prices sounds funny. With all the corpse used by vulture humans, Dou laughed at the frozen food making a wonderful Christmas, removed bones of chicken legs costing 3 more than frozen ones in Walmart with her walmart kitchen scissors, with skin side down, pan fried them on both sides then drained the oil. Her husband was weak as a human prone to city air, cars, traffic, virus in the air, cough, cuts, hit, noises, rains, dog hairs. She cooked while praying that god help us all not get hurt and return home safely. The job actually degraded her husband’s talent, she thought like that everyday. Staring at the chefs’ excess fat, she poured oil into the wok, added ginger, cloves of garlic, chilli. Her husband at work was pale and thin. Years ago, they were among the passengers jostling each other rushing for the gate to catch a train: now they settled, travel was rare: they crossed the city of pollutants and dangers, went to a place called office.
+
+Neglected, pointless jobs one after another in a small unnoticed city brought a felling of being wasted to her. Weeks of tourists culminated in the disgusting feeling when she put soy sauce, cooking wine and sugar again into the wok. 10 yuan, yes, not 85 yuan, I’m enough. She said. Strata of flavors can’t hide the poor ingredients: architect zhang said once, dealing with her beef with potato comparing with expensive prawn with no cooking. Poor guys can’t cook, they went to McDonald’s and self destructed. Dou’s demonstrable cooking skills were like nature healing her young husband from the cold role in finance. Her eloquence in words could bring her a management job but as she said she needed to feed rather than to preach. 
+
+Professor muffin tin
+
+The elevator rose with a shudder, waking up professor muffin’s deep thoughts started from his way from home to school that he was a bird rather than tree people living in tins and shared spaces. He drank a lot to brazen it out when he had been beaten by other teenagers- rice wine, beer, vodka... which the head of chef smuggled to him from the store for officials. And Cuban cigars, the chef always lit one shamelessly as if it was not stolen goods. The government department they served was health and import check. He was infuriated and tore the piece of paper a Chinese student submitted to him, because the student wrote he loved him and he thought he knew his secret. He puis made the white walk in front, while forced the talking student bring up the rear in the experiments for the 4-year long degree. “faster, higher, speed up and more accurate!” he bellowed out the orders, showing no mercy to the doctor students he trained, he thought they may like a tiger trainer who could help them with both research and job hunting. The boy who joked on the teacher’s private life slumped onto the floor when he received a failure in his hypnosis. He took off his buffalo leather jerkin which was a gift from a British lover in Bristol, sat into his chair in the scorching office, watched snow falling down. Merry Charismas, he thought the boy might have found him on gay dating apps. Sugar melt in hot water, a kind of buoyant liquid rising in the bottle in his hands: just washed chalk’s on hands, he put some cream against cold winter dry winds, then warmed the hands with the plastic bottle. Government jobs are akin, he thought, thinking about his years of using tax money to pay his life. The jerkin was a ww1 uniform, then welcomed by people working outdoors. He was wearing girl’s clothes on his meeting with some people: they found him a penis too much under the skirts. He was still a dish at his 60s, he knew it.
+ 
+
+67. 三杯雞煲 ‹ CHEF RECOMMENDATION ›    £8.50
+
+THREE CUP CHICKEN CLAYPOT
+
+CHICKEN WITH PEPPERS, DRY CHILLI & GINGER. THE SAUCE IS MADE FROM
+A CUP OF VINEGAR, DARK SOYA AND MOST IMPORTANTLY TRIPLE DISTILLED
+RICE WINE! APPETISING AND AROMATIC.
+ 
+©三杯雞 http://blog.iset.com.tw/chef/?p=5765
+
+©Ching-he Huang's hearty three-cup chicken dish 
+
+https://www.itv.com/thismorning/food/hearty-three-cup-soup-ching-he-huang
+
+This classic Taiwanese dish is warm and comforting - perfect for the cold weather. The chicken, ginger and chilli will give you a warm zingy lift. It’s also quick and speedy - prepared in 5 minutes and cooked in 7 - which means chopping board to table in under 15 minutes.
+
+Serves: 2
+
+ Préparation : 5’ cussion 7’
+
+食材：
+
+去骨雞腿2隻250g boneless chicken thighs, sliced into 1cm x 2.5cm cubes、蔥2根、薑1塊Large knob of fresh root ginger, peeled and cut into large slices、蒜仁8顆2 garlic cloves, crushed but left whole、辣椒2根1 red chili, sliced into rings、九層塔1碗5g Thai sweet basil
+
+Ingrédient
+Pour cette recette de 
+une cuillère à café de sucre
+de l'huile
+éplucher huit gousses d’ail 
+
+調味料：
+
+醬油1大匙50ml low-sodium light soy sauce、米酒200c.c 1 tablespoon Shaohsing rice wine or dry sherry.、麻油50ml、冰糖1 teaspoon caster sugar、香油toasted sesame oil
+
+250g boneless chicken thighs, sliced into 1cm x 2.5cm cubes
+
+Pinch of sea salt flakes
+
+Pinch of ground white pepper
+
+1 tablespoon cornflour
+
+1 tablespoon rapeseed oil
+
+Large knob of fresh root ginger, peeled and cut into large slices
+
+2 garlic cloves, crushed but left whole
+
+1 red chili, sliced into rings
+
+1 tablespoon Shaohsing rice wine or dry sherry
+
+50ml low-sodium light soy sauce
+
+50ml toasted sesame oil
+
+1 teaspoon caster sugar
+
+5g Thai sweet basil
+
+Rice: 100g wild rice, 100g red rice, 100g Thai Jasmine rice
+
+做法：
+
+1.	起鍋，放入雞肉(雞皮向下)煸炒出油，兩面煎香後，將雞油倒出，雞肉取出切塊。
+
+Placer le poulet dans une poêle 
+
+Éponger de l'huile au poêle huilée sur le poulet 
+
+Stop quand il est joliment doré
+
+Retournez rapidement et procéder de la même façon
+
+Cut the meat.
+
+2.	預熱砂鍋，倒入香油、麻油，爆香薑片、蒜仁、辣椒段，放入雞肉塊、少許冰糖、米酒、醬油加鍋蓋燜煮收汁，接著加入九層塔、蔥段拌炒，最後在鍋邊淋2大匙米酒即可。Heat a wok over a high heat until smoking and add the rapeseed oil. Add the ginger slices and fry until crispy and golden, then add the garlic and red chili and toss for a few seconds to release their flavour. Add the chicken pieces and leave for 10 seconds to sear and colour, then flip them over. Season with Shaohsing rice wine or dry sherry and stir-fry for 2-3 minutes on a high heat until the chicken is almost cooked. Add the light soy sauce, the toasted sesame oil and sugar and cook for 5 minutes until the liquid has almost evaporated. The chicken should have a dark brown, slightly sticky shine. Add the basil leaves and toss through to will, then take off the heat and serve immediately.
+
+Préchauffer le récipient à degree celsius
+
+Fondre le beurre dans la poêle. Préférez un beurre clarifié ou un mélange beurre + huile.
+
+Verser le ginger, garlic, chilli dans la poêle chaude.
+
+Put in chicken, sugar, cooking wine, soy sauce, lid on, cook through.
+
+Add thai sweet basil, shallot, mix. 
+
+Saupoudrer deux cuillerées à soupe de saké finement sur la surface
+
+Method
+
+Place the chicken in a bowl, add the salt and ground white pepper and then dust with the cornflour. Mix well to coat then set aside.
+Heat a wok over a high heat until smoking and add the rapeseed oil. Add the ginger slices and fry until crispy and golden, then add the garlic and red chili and toss for a few seconds to release their flavour. Add the chicken pieces and leave for 10 seconds to sear and colour, then flip them over. Season with Shaohsing rice wine or dry sherry and stir-fry for 2-3 minutes on a high heat until the chicken is almost cooked.
+
+Add the light soy sauce, the toasted sesame oil and sugar and cook for 5 minutes until the liquid has almost evaporated. The chicken should have a dark brown, slightly sticky shine. Add the basil leaves and toss through to will, then take off the heat and serve immediately.
+
+For the rice
+
+Rinse the rice in cold water until the water runs clear
+
+Add to 600ml of cold water and bring to the boil, put the lid on and leave to simmer for 15 minutes
+
+Once the rice is cooked, it should fluff up with a fork
+
 - 27
 
 ![img](https://allenneptune.files.wordpress.com/2018/11/20181121_163829-1.jpg)
