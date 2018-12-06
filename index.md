@@ -100,8 +100,6 @@ Vol. 30 forest
 
 billy yin
 
-One day morning, yin found his skin falling off. He didn’t put the skin back but watched his heart pumping oxygen into his blood for no less than one hour. He took out the tooth brush, put toothpaste on it, then brushed his teeth until two minutes. He took out his teeth one by one, they were beautiful but empty inside. His skin was full of scars and spots. He cut his hair and beard, then wore the skin back on his muscles. He took out his eyeballs, he just watched porn, he would like to be blind now. No matter how hard he tried, he could not give the right interpretation of human’s sex behavior. Josh said, cream on toast. Yin just watched porn, making himself arouse for a while, blood circulation speeding, muscle not cold, joint not cold, like talking to a long lost friend like he had never left. Washing feet was releasing the busy and tired bones which lacked care. How much money he would need to pay for mistakes like Mr Muffin did as a single man. He made a calculation, income just met his food and clothes. Sadly, he found he needed a girl to help with food but could not afford. I have to continuing working, washing shoes after work, eating burgers on subway, rubbing myself for a long time. He thought. That was his city life. Now he is far from city beyond touch, frontier, fighting with chimpanzees, watching stars replace daytime then sunrise and sometimes the news. Years ago he put chicken bones under a tree, wishing there would be a tree of roasted chicken. After years, bones are still bones, tree is still the tree, the money spent would never come back. So he must not stop, get sick, nor pay for a girl until he could. He buried himself at night, washed all the dirt, opened curtains of the closet of a hidden Christian, letting the sun into his eyes, embracing a new day. The sun is no longer there: stars falling in the background telling us we are spinning in chaos at nowhere. When hope feels itself failed, that would a rescue plan of counting by 10000. So cold, billy yin wore the leather jerkin, walked his morning walk in the sand with a smoke.
-
 Mr muffin
 Recede bare bustling haggling vultures prone degraded excess jostle
 
@@ -142,9 +140,13 @@ Serves: 2
 去骨雞腿2隻250g boneless chicken thighs, sliced into 1cm x 2.5cm cubes、蔥2根、薑1塊Large knob of fresh root ginger, peeled and cut into large slices、蒜仁8顆2 garlic cloves, crushed but left whole、辣椒2根1 red chili, sliced into rings、九層塔1碗5g Thai sweet basil
 
 Ingrédient
+
 Pour cette recette de 
+
 une cuillère à café de sucre
+
 de l'huile
+
 éplucher huit gousses d’ail 
 
 調味料：
