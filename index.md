@@ -121,7 +121,8 @@ THREE CUP CHICKEN CLAYPOT
 CHICKEN WITH PEPPERS, DRY CHILLI & GINGER. THE SAUCE IS MADE FROM
 A CUP OF VINEGAR, DARK SOYA AND MOST IMPORTANTLY TRIPLE DISTILLED
 RICE WINE! APPETISING AND AROMATIC.
- 
+![img](https://allenneptune.files.wordpress.com/2018/12/gettyimages-161353182-1024x1024.jpg) 
+
 ©三杯雞 http://blog.iset.com.tw/chef/?p=5765
 
 ©Ching-he Huang's hearty three-cup chicken dish 
