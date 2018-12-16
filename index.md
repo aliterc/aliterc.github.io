@@ -5127,6 +5127,7 @@ Billy Yin was recently working in a space tourism site as a tech support assista
 He fell and had been sent to military hospitals. He thought about Tibet. Though he had been born as a Canadian, he had never experienced high altitudes, sunshine and timeless way of living. Tibet was not very far. If by car, he could arrive at Lesha in two days’ drive. He hadn’t had a car. His dad was a steady income government officer regulating local food safety. He never wanted a car as he had been in Shanghai relying on public transport for so long.
 
 The team manager was an interesting 40 year old senior. He thought that Billy Yin had been so sick after his visit to South Africa and Chile. He noticed that. So when Billy Yin had both time and free medical care, he took him out by a Jeep, showed him the points of owing a car and a camera. I want to fly so I bought a car. He told Billy Yin. When Billy Yin joined the company he was thinking of buying a Ford. Now he rented a car anywhere he went by Henz.
+
 Billy Yin was a lab test result and beta of Siemens and Chinese army’s special joint national security level project, he woke up in an all clean, cold and white lab with no sunlight. He could remember nothing. Until one day he found that he was not a creation of the nature. He thanked god deeply in his heart, if he still had one, that his mother gave birth to him.
 
 Mother earth, though some human tried to be the mom. Billy Yin was so sick that he had been relying on breathing machine. His heart failed. The Chinese doctors couldn’t stop his internal bleeding in his stomach. He had blue blood, which he joked with his sister was because of drinking Pepsi too much. He would like to see birds, wild animals and all the other creatures. It made him feel the good of being alive.
@@ -5143,4 +5144,62 @@ Mr Muffin took Billy Yin into his paper box. They landed in Chile where Billy Yi
 
 Billy Yin said: is it real?
 
-Mr Muffin picked up a stone, grained it in his palm. He then found a bird’s egg, cooked it in his palm. He caught a fish, transformed it into a flower. He said, no, it’s not real. He then hold the driver’s hand, telling Billy Yin that only the flesh you are holding is worth dying for. The Welshman’s hands were like a piece of silk flowing around Mr Muffin’s immortal cold. He could feel that Mr Muffin had wounds: long lost lover, mi
+Mr Muffin picked up a stone, grained it in his palm. He then found a bird’s egg, cooked it in his palm. He caught a fish, transformed it into a flower. He said, no, it’s not real. He then hold the driver’s hand, telling Billy Yin that only the flesh you are holding is worth dying for. The Welshman’s hands were like a piece of silk flowing around Mr Muffin’s immortal cold. He could feel that Mr Muffin had wounds: long lost lover, mission impossible, stuck in the door of this world and the after life, and above all, the inability of smiling. It is not warm enough, so he became his driver.
+
+It turned dark, everyone needs a home. They decided to go to a local police’s home where his wife and daughter had been preparing dinner for these cold miserable men working in the winds and sunshine all day. The soils were too dry for any plants to grow. Mr Muffin’s devil’s eyes were not like Billy Yin’s which were full of water and innocent. Billy Yin soon felt that two devils were around him and he was again a prisoner. Night had come and you could hear wolves in the wind. He wanted to escape. Mr Muffin said: one step outside the door and you will be eaten. Billy Yin suddenly missed his manager’s warm, relaxed Chinese jokes and his dream of buying a Ford instead of renting expensively around.
+
+He felt wind, snow, rain and a time lapse of every growing things in Patagonia. He heard waves, seagull and breaking of eggs. Though his eyes had been plugged out as he could not control his lust for men any more, he did evil, thought evil. His eyes were in a glass of hot water, for purifying reasons. He smelt mint, toothpaste, double swords chewing gum, and trees. He took a sweet made of ginger containing a pine nut. It was from the wonderful cook Mr Muffin according to a very old recipe. Mr Muffin said, do you want a hot bath in my paper box? I could place it amidst the penguins. Billy Yin felt that he had been cured when he washed his skin: the machines were so steadily, silently, smoothly running.
+
+### SICK ON BED COVEL GREENWOOD – THE WHOLE STORY.
+
+Money is not a problem.
+
+Covel Greenwood was born in Xi’an. When he came back from Europe, his mother was killed. His father married a new wife. His father tried to kill him. He could not do it by himself. He sent Covel to his uncle, who was in the local army. The uncle didn’t kill Covel. He sent him to a remote region, heart of Chinese Communists’ struggle in 1940s.
+
+A priest told Covel not to fight with the Japanese invaders, but to learn from them. Covel was young and inexperienced. He was with another soldier on a secret resistance stop near a mountain road. In the valley, it was green and even a river was running. They were not covered by any trees up on top of the mountain where were only sunshine and bushes.
+
+It was hard. They had to carry water up onto the hill. It was silent. It was hot. Japanese cars came to check who was living in the small house. Covel said they two were gay men who had to escape to this wildness to survive. Covel could only sleep if he heard the other soldier’s breath. The Japanese were behaving badly. The other solder thought that they still might be killed just as a joke as gay men were a public joke even in Japanese’s eyes. He chose to sacrifice himself to spoil the Japanese’s joy of killing. He somehow made the officer angry and got himself killed. Facing weak Chinese is like a grade 4 harry potter watching freshmen passing. Why not to do some bullying? Killing for fun could only be stopped when there is no fun.
+
+After that, Covel began to challenge Japanese in private occasions. On the second floor of a restaurant near the Goose pagoda, he thought about all the lost things once existed in this city, his hometown, then left to the Yellow river bank to fight with a Japanese one to one.
+
+The fight ended with Americans’ intervention. Covel’s best friend who was sick in a Shanghai hospital asked the American rangers to help. Covel then had a chance to study in the US to be a doctor. His friend died sadly. He returned to Shanghai, had a nice hospital job. His father was affected by the war ongoing, hearing that his son had had a modern life, sent him a letter.
+
+Covel ignored the letter. He then followed his teacher’s advice to leave China. He was in debts to a company who supported his study. He moved to Singapore and still worked for the company. He married to a movie director’s daughter there.
+
+It is said that Covel was peacefully moving to Singapore. But, every story had another version. Covel was possibly travelling with a professional traveler and then arrived Malaysia. He became a craftsman making wooden things.
+
+Seeing Billy Yin struggling with money, Professor Muffin Tin had to tell this war time story to him. Billy Yin was a Christian, which means he had to hide every time the government came to search local churches. BBC reported a government officer in Beijing invited the journalist to his home to see the alter. Billy Yin just wanted to hang a cross in the room and sing southern cross freely, not looking like an alien. While, when he found Chinese put a big slogan “this is a Christian family”, he found it fraudulent as it is too foreign and too frank for a Chinese under Communist education and rule for years.
+
+Professor Muffin Tin never questioned himself with serious questions. God creates men and makes women give birth. Professor Muffin Tin also knew that women made men labor and bring back home money and good clothes. He had been a cook. He understood that thinking differently and behaving differently could be shouted and fired. He then never left school to keep himself in the front of techs and ideas as he felt that he was too old and he had been in a very disadvantaged, margined position.
+
+“ok, ” he said in the telephone to Billy Yin, from Kent University to Shanghai, “you know it’s a communist country and there should be no money. So never worry about it as long as it is still a communist country.”
+
+“What? But everything is charged and you just can’t say it’s people’s restaurant and I am one of the people and it should be free,” Billy Yin was counting the time as his phone would be charged when picking up international calls.
+
+“I said, when you found that there had been no money pouring into your bank account for months, years, think like this: on the foundation of this country there should not be even a bank.”
+
+“that’s rubbish.”
+
+“Has Trump told you in his book that you should make use of money rather than checking pay cheque?”
+
+“yes, a little, like Danish rolls and classic music: pay cheque is a fraud but writing stories is assets of one’s own. Good things never fade.”
+
+“Has the government told you that the banks were once in big debts and had had lots of problems in China? Why are you using them still? ”
+
+“I have a pay cheque and have to pay the rents and utilities.”
+
+“How much money do you think is secure?”
+
+“secure for what? ”
+
+“to be a Christian and live as one.”
+
+“I could only live once and I have to choose if there is no other option. If I were a Taiwanese and I were overaged I had to marry to any available option even it is from mainland.”
+
+“that means you have no time left.”
+
+“I think I need a business to make money rather than having the money. 1,000,000 rmb. Yes.”
+
+“that’s just a car’s price.”
+
+“just give me the money.”
