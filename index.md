@@ -4942,6 +4942,29 @@ clothes laid out across the single bed are beautiful.
 ### https://itunes.apple.com/us/movie/macbeth/id1223153916
 ### https://www.ucpress.edu/book/9780520207615/policing-shanghai-1927-1937
 ### 14 HTTP://WWW.ISPRS.ORG/PROCEEDINGS/XXXV/CONGRESS/YF/PAPERS/941.PDF
+
+1. INTRODUCTION
+
+3D reconstruction and visualization of the lost objects or past
+word using antique maps or pictures have been receiving more
+attention since reconstructed 3D world gives important
+information for understanding those days.
+
+From these viewpoint, 3D reconstruction of historical city
+Kawagoe where locate in Saitama Japan, and Palatitsa palace
+where was the residence of great Alexander’s father were
+investigated using antique maps and surveying maps by the
+authors (Sakamoto & Chikatsu, 2002, Suzuki & Chikatsu,
+2003).
+
+Similarly, 3D reconstruction of painted world as picture is
+interesting issue. With this motive, 3D reconstruction “Ideal
+City” painted by Piero della Francesca at 1475 was investigated.
+Ideal City was painted as ideal urban in those days using
+perspective geometry. 3D reconstruction using
+photogrammetric geometry, and visualization and landscape
+animation for the “Ideal City” are demonstrated in this paper.
+
 ### 15 Young Chinese financier made a copy of himself.
 
 Night person, hate daylight, he is kind of out space person. In the future, the sun is dead. Earth has been polluted. Only moon light and stars. Nothing is growing.
