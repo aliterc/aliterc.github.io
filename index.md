@@ -38,4 +38,4 @@ Having trouble with Pages? Check out our [documentation](https://help.github.com
 
 
 
-[Link](https://github.com/aliterc/aliterc.github.io/blob/master/0902.html)
+[Link](https://aliterc.github.io/0902)
