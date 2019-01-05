@@ -58,6 +58,6 @@ Apart from sales, I have been a technical support. In my portfolio, you could fi
 
 
 
-[Link](https://aliterc.github.io/0902)
+[1/100 cut from video materials](https://aliterc.github.io/0902)and the [backstage](https://aliterc.github.io/visual_effects_forum.html)
 
-
+[link](https://aliterc.github.io/recipes_zh_fr.html)ZH_FR_EN translation
