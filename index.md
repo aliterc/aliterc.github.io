@@ -53,9 +53,27 @@ Email: 18217325136_139.com
 
 ## My works
 
+- journalist
+  
+  Anderson Cooper like Allen Neptune 360 degree~ 水均益360的兰州大学听说没有洗澡水
 
+- movies
+ 
+  中国少了一味药 2016
+  
+  傲岸与偏见 2020
+  
+  纪录片 2024
+  
+  远大前程 2028
+  
+  流星蝴蝶剑
 
+- travel food expert S.S.P.
 
+- as a blogger
+
+  我经常会写点小说，感想之类的。
 
 [1/100 cut from video materials](https://aliterc.github.io/0902)and the [backstage](https://aliterc.github.io/visual_effects_forum.html)
 
