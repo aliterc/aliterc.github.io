@@ -40,6 +40,8 @@ BELOW ARE MY CV
 
 # ZE LI
 
+[blog](https://allenneptune.wordpress.com/)
+
 ![Image](https://scontent-lga3-1.xx.fbcdn.net/v/t1.0-9/26815157_536207260075339_3206598693222458933_n.jpg?_nc_cat=104&_nc_oc=AQlqNU2bbUcbP9UR2M5dFCRIw0DabqhGKrB3AavTaliIAl-8Un922frAQPODRGcfcC0&_nc_ht=scontent-lga3-1.xx&oh=791521e22c802ac3bcaf780754980724&oe=5D83966B)
 
 Mobile: 86 182 1732 5136
