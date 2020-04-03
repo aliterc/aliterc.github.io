@@ -63,7 +63,7 @@ Email: 18217325136_139.com
 
 [link](https://aliterc.github.io/recipes_zh_fr.html)ZH_FR_EN translation
 
-木须肉
+木须肉 "mushu"chicken
 
 这个好像闭着眼睛都能做了。网不好，之后再改。
 
