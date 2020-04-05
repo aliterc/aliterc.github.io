@@ -67,9 +67,9 @@ Designed to encourage dogs to relieve themselves before boarding domestic flight
 
 Service dogs are permitted to use disabled-accessible toilets in the terminal but the mess must be cleaned up.
 
-**Feuilletés de ris de veau**
+**Feuilletés de ris de [veau](https://www.collinsdictionary.com/us/dictionary/french-english/veau)**
 
-Un délicieux feuilleté à servir en entrée chaude
+Un délicieux [feuilleté](https://www.collinsdictionary.com/us/dictionary/french-english/feuillet%C3%A9) à servir en entrée chaude
 
 Chef Simon Difficulté moyenne Pour 8 personnes.
 
