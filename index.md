@@ -59,7 +59,7 @@ Email: 18217325136_139.com
   
 **Osaka airport introduces [canine](https://www.oxfordlearnersdictionaries.com/definition/english/canine_1?q=canine) comfort room, complete with pole**
 
-TOKYO (Reuters) - Osaka’s Itami airport is setting up a toilet area for travelling dogs, complete with a pole for them to cock a leg on.
+TOKYO (Reuters) - Osaka’s Itami airport is setting up a toilet area for travelling dogs, complete with a pole for them to [cock](https://www.oxfordlearnersdictionaries.com/definition/english/cock_2) a leg on.
 
 The toilet, in a fenced-off yard outside the terminal, will also have a shower and water bowls, operator Kansai Airports said. The “pee pole” will flush.
 
