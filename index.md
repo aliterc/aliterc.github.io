@@ -67,6 +67,39 @@ Designed to encourage dogs to relieve themselves before boarding domestic flight
 
 Service dogs are permitted to use disabled-accessible toilets in the terminal but the mess must be cleaned up.
 
+**Feuilletés de ris de veau**
+
+Un délicieux feuilleté à servir en entrée chaude
+
+Chef Simon Difficulté moyenne Pour 8 personnes.
+
+1 - Découper les paumes de ris de veau déjà blanchies pochées et épluchées en gros dés.
+
+2 - Sauter au beurre avec les échalotes ciselées pour obtenir une simple coloration de surface (il est inutile de fariner) n'oubliez pas de saler et poivrer en suffisance.
+
+3 - Hors feu ajouter le persil haché.
+
+4 - Partager le feuilletage en 2 (nous avions préalablement réalisé 1 kg de feuilletage rapide).
+
+5 - Abaisser sur une épaisseur de 5 mm.
+
+6 - Tailler 16 rectangles de 10 cm sur 7 cm (environ).
+
+7 - Dorer les côtés au jaune d'oeuf et placer les épinards à la crème au centre, sans débordement.
+
+8 - Déposer les morceaux de ris de veau sur les épinards.
+
+9 - Placer la deuxième abaisse de feuilletage bord à bord et souder en pressant d'abord avec l'index puis en appuyant légèrement avec le dos d'une lame de couteau. Chiqueter les bords pour éviter toute fuite de la garniture.
+
+10 - Percer la cheminée, nécessaire pour éviter le soulèvement du couvercle lors de la cuisson.
+
+11 - Décorer éventuellement la surface et passer de la dorure.
+
+12 - Cuire 20 minutes à 180°C en chaleur tournante. Moduler et vérifier la bonne conduite de la cuisson en fonction des performances de votre four. Après cuisson pensez à lustrer au beurre fondu avant de servir.
+
+Pour 8 feuilletés de ris de veau
+500 g de pâte feuilletée - 2 paumes de ris de veau pochées - 200 g d'épinards en branche cuits au beurre et liés à la crème - 3 échalotes - persil haché.
+
 - as a blogger
 
   我经常会写点小说，感想之类的。
