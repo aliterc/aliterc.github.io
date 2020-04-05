@@ -54,6 +54,18 @@ Email: 18217325136_139.com
   [111](https://github.com/aliterc/aliterc.github.io/blob/master/videos/111ynoyaxa.m4a)
   
   [イギリの名門サッカーチーム「アーセナル」のディフェンダーがナイフを持った強盗からチームメイトを守ったとして話題になっています。](https://github.com/aliterc/aliterc.github.io/blob/master/videos/%E3%82%A4%E3%82%AE%E3%83%AA%E3%82%B9%E3%81%AE%E5%90%8D%E9%96%80%E3%82%B5%E3%83%83%E3%82%AB%E3%83%BC%E3%83%81%E3%83%BC%E3%83%A0%E3%80%8C%E3%82%A2%E3%83%BC%E3%82%BB%E3%83%8A%E3%83%AB%E3%80%8D%E3%81%AE%E3%83%87%E3%82%A3%E3%83%95%E3%82%A7%E3%83%B3%E3%83%80%E3%83%BC%E3%81%8C%E3%83%8A%E3%82%A4%E3%83%95%E3%82%92%E6%8C%81%E3%81%A3%E3%81%9F%E5%BC%B7%E7%9B%97%E3%81%8B%E3%82%89%E3%83%81%E3%83%BC%E3%83%A0%E3%83%A1%E3%82%A4%E3%83%88%E3%82%92%E5%AE%88%E3%81%A3%E3%81%9F%E3%81%A8%E3%81%97%E3%81%A6%E8%A9%B1%E9%A1%8C%E3%81%AB%E3%81%AA%E3%81%A3%E3%81%A6%E3%81%84%E3%81%BE%E3%81%99%E3%80%82.m4a)
+  
+  20200406
+  
+**Osaka airport introduces [canine](https://www.oxfordlearnersdictionaries.com/definition/english/canine_1?q=canine) comfort room, complete with pole**
+
+TOKYO (Reuters) - Osaka’s Itami airport is setting up a toilet area for travelling dogs, complete with a pole for them to cock a leg on.
+
+The toilet, in a fenced-off yard outside the terminal, will also have a shower and water bowls, operator Kansai Airports said. The “pee pole” will flush.
+
+Designed to encourage dogs to relieve themselves before boarding domestic flights, it will be the first such canine comfort facility at a Japanese aiport.
+
+Service dogs are permitted to use disabled-accessible toilets in the terminal but the mess must be cleaned up.
 
 - as a blogger
 
