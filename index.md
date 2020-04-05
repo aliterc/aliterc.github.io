@@ -98,6 +98,7 @@ Chef Simon Difficulté moyenne Pour 8 personnes.
 12 - Cuire 20 minutes à 180°C en chaleur tournante. Moduler et vérifier la bonne conduite de la cuisson en fonction des performances de votre four. Après cuisson pensez à lustrer au beurre fondu avant de servir.
 
 Pour 8 feuilletés de ris de veau
+
 500 g de pâte feuilletée - 2 paumes de ris de veau pochées - 200 g d'épinards en branche cuits au beurre et liés à la crème - 3 échalotes - persil haché.
 
 - as a blogger
