@@ -42,8 +42,7 @@ BELOW ARE MY CV
 
 [blog](https://allenneptune.wordpress.com/)
 
-Email: 18217325136_139.com
-       covelneptune_gmail.com
+Email: covelneptune_gmail.com
 
 ## My works
 
