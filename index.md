@@ -54,7 +54,7 @@ Email: covelneptune_gmail.com
   
   [イギリの名門サッカーチーム「アーセナル」のディフェンダーがナイフを持った強盗からチームメイトを守ったとして話題になっています。](https://github.com/aliterc/aliterc.github.io/blob/master/videos/%E3%82%A4%E3%82%AE%E3%83%AA%E3%82%B9%E3%81%AE%E5%90%8D%E9%96%80%E3%82%B5%E3%83%83%E3%82%AB%E3%83%BC%E3%83%81%E3%83%BC%E3%83%A0%E3%80%8C%E3%82%A2%E3%83%BC%E3%82%BB%E3%83%8A%E3%83%AB%E3%80%8D%E3%81%AE%E3%83%87%E3%82%A3%E3%83%95%E3%82%A7%E3%83%B3%E3%83%80%E3%83%BC%E3%81%8C%E3%83%8A%E3%82%A4%E3%83%95%E3%82%92%E6%8C%81%E3%81%A3%E3%81%9F%E5%BC%B7%E7%9B%97%E3%81%8B%E3%82%89%E3%83%81%E3%83%BC%E3%83%A0%E3%83%A1%E3%82%A4%E3%83%88%E3%82%92%E5%AE%88%E3%81%A3%E3%81%9F%E3%81%A8%E3%81%97%E3%81%A6%E8%A9%B1%E9%A1%8C%E3%81%AB%E3%81%AA%E3%81%A3%E3%81%A6%E3%81%84%E3%81%BE%E3%81%99%E3%80%82.m4a)
   
-  20200406
+  20200405
   
 **Osaka airport introduces [canine](https://www.oxfordlearnersdictionaries.com/definition/english/canine_1?q=canine) comfort room, complete with pole**
 
@@ -99,6 +99,36 @@ Chef Simon Difficulté moyenne Pour 8 personnes.
 Pour 8 feuilletés de ris de veau
 
 500 g de pâte feuilletée - 2 paumes de ris de veau pochées - 200 g d'épinards en branche cuits au beurre et liés à la crème - 3 échalotes - persil haché.
+  
+  20200406
+  
+**Les madeleines**
+
+Madeleines de Commercy ou d'ailleurs, avec leur bosse comme il se doit !
+
+Chef Simon Préparation : 20' Cuisson : 5' Difficulté moyenne
+
+1 - Beurrer et fariner les moules à madeleines.
+
+2 - Dans un récipient mettre la farine en fontaine et ajouter la levure chimique.
+
+3 - Ajouter les oeufs.
+
+4 - Débrouiller légèrement les oeufs et ajouter le sucre.
+
+5 - Mélanger à nouveau et ajouter le lait.
+
+6 - Continuer de mélanger au fouet et ajouter le beurre fondu le zeste de citron ou la vanille selon votre choix.
+
+7 - On obtient une pâte bien lisse.
+
+8 - Verser dans les moules à la cuiller, au trois quart de la hauteur et laisser reposer 10 mn.
+
+9 - Cuire au four préchauffé à 200°C entre 5 et 8 minutes. Enlever les madeleines des moules avant le refroidissement.
+
+Recette pour 36 madeleines environ
+
+3 gros oeufs - 200 g de farine - 150 g de sucre - 200 g de beurre fondu - 1 sachet de poudre à lever (soit environ 11 g) - 5 cl de lait - quelques râpures de citron ou de bergamote.
 
 - as a blogger
 
