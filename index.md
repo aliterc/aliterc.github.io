@@ -130,6 +130,54 @@ Recette pour 36 madeleines environ
 
 3 gros oeufs - 200 g de farine - 150 g de sucre - 200 g de beurre fondu - 1 sachet de poudre à lever (soit environ 11 g) - 5 cl de lait - quelques râpures de citron ou de bergamote.
 
+  20200407
+  
+**Pâte feuilletée à 6 tours**
+
+Méthode rapide sans phases de repos.
+
+Chef Simon Chef Simon Préparation : 45' Difficulté moyenne
+
+1 - Préparer la farine et verser l'eau au centre de la fontaine, sans oublier la fameuse pincée de sel.
+
+2 - Du bout des doigts, incorporer la farine par un mouvement délicat et circulaire. Lorsque le mélange prend une consistance liée tout en restant liquide,...
+
+3 - ... ramener la farine avec le coupe pâte vers le centre. La farine va absorber le liquide restant.
+
+4 - Ramener toute la matière à l'aide du coupe pâte en coupant à travers la pâte et en recommençant jusqu'à amalgame complet.
+
+5 - Le coupe pâte va permettre l'amalgame sans développer le gluten, sans chauffer la pâte et sans la rendre élastique.
+
+6 - La détrempe est molle, collante et n'a aucun corps. Au toucher, elle est froide ce qui montre qu'elle n'a pas subi de pétrissage donc un développement limité du gluten et de l'élasticité.
+
+7 - On voit bien sur la photo que cette détrempe n'a pas de corps. Au toucher on ne rencontre pas de résistance. C'est le but recherché dans cette technique !
+
+8 - Former une croix ou une étoile à quatre branches avec cette détrempe en réservant une partie boursoufflée au centre.
+
+9 - Étaler au rouleau chaque branche de la croix et déposer la matière grasse sur la bosse centrale. La détrempe et la matière grasse doivent avoir plus ou moins la même consistance.
+
+10 - Replier chaque bande une par une pour envelopper la matière grasse avec soin.
+
+11 - Avant de replier la dernière branche souder légèrement au rouleau pour assurer l'étanchéité.
+
+12 - Étirer la dernière langue de pâte de façon à envelopper entièrement le pâton (dessus et sur les côtés).
+
+13 - Répartir la matière grasse dans le pâton en tapotant doucement et régulièrement avec le rouleau. La matière grasse se répartit équitablement sans percer le pâton.
+
+14 - Il est primordial de bien former le premier pâton. Continuer à tapoter avec le rouleau. Petit à petit l'abaisse prend forme. Cela évitera au beurre de transpercer la détrempe et donc de donner un feuilletage inégal.
+
+15 - Abaisser sans forcer surtout les 2 premiers tours. La pâte est encore fragile et ne doit pas se déchirer. Fariner légèrement et ôter l'excédent de farine à la brosse. Ne pas forcer au risque de voir le beurre transpercer la fine couche de détrempe. Les premiers tours sont courts.
+
+16 - Replier une extrémité de l'abaisse sur elle même en ôtant l'excédent de farine à la balayette.
+
+17 - Replier l'autre extrémité sur les deux premières. L'abaisse a été pliée en 3 parties égales.
+
+18 - Veiller a ce que les 3 épaisseurs de l'abaisse soient devant vous et soudez les en appuyant légèrement avec le rouleau à chaque extrémité. Le premier tour est terminé. Abaisser à nouveau comme sur la photo 15 pour commencer le second tour. Faire 6 tours au total. Filmer et mettre au frais.
+
+Pour cette recette de pâte feuilletée rapide
+
+500 g de farine - 300 g d'eau - 5 g de sel (soit un poids total de 800 g) - 400 g de beurre sec ou margarine à feuilletage si vous en possédez ou à défaut 400 g de beurre manié (300 g de beurre + 100 g de farine) - 1 coupe-pâte - 1 rouleau - 1 couteau d'office - 1 éminceur. Prévoir un peu d 'eau et de farine supplémentaire pour les mises au point et pour abaisser la pâte.
+
 - as a blogger
 
   我经常会写点小说，感想之类的。
