@@ -131,6 +131,28 @@ Recette pour 36 madeleines environ
 3 gros oeufs - 200 g de farine - 150 g de sucre - 200 g de beurre fondu - 1 sachet de poudre à lever (soit environ 11 g) - 5 cl de lait - quelques râpures de citron ou de bergamote.
 
   20200407
+
+**Save Grandma or save the economy? It depends**
+
+Should we sacrifice Grandma for the GDP? That more or less sums up the debate in much of the U.S. media over the past week, ever since U.S. President Donald Trump mused aloud to a Fox News reporter about relaxing the already patchy American shutdown of social and economic activity in time for Easter – a position he has since recanted.
+
+Underlying Mr. Trump’s initial impulse were several supporting assumptions: that the impact of the coronavirus epidemic is unlikely to be far out of line with previous experience, especially with the flu; that it mostly affects the elderly; and that the economic costs of the kind of social-distancing measures governments have imposed to date are too great, even in the short term, to be justified.
+
+Ergo: sorry, Grandma. Mr. Trump didn’t say so explicitly, but a number of his more idolatrous supporters did: If some number of the elderly have to die prematurely to save the economy, so be it. Or as Mr. Trump put it, on Twitter, “WE CANNOT LET THE CURE BE WORSE THAN THE PROBLEM.”
+
+There’s lots wrong with this. The threat represented by the coronavirus is orders of magnitude worse than the flu. The flu kills roughly 60,000 Americans annually, at most; the coronavirus could kill as many as 2.2 million, according to an influential study by experts at the Imperial College of London. Death rates are much lower for the non-elderly, but not insignificant; nor, as important, are hospitalization rates. And an overwhelmed hospital system would lead to many more needless deaths, not just among coronavirus sufferers, but patients with other conditions.
+
+What’s not entirely wrong, however, is the notion that economic costs must be taken into account even as we try to save lives. This is a point lost on those whose response to Mr. Trump’s musings was, as his presumptive Democratic rival Joe Biden put it, that “no life is worth losing to add one more point to the Dow.” Maybe not the Dow, but the economy? How many lives saved is worth how many trillions of dollars of lost output, lost jobs and everything that goes with either? Or let me put it even more provocatively: How much is one life worth?
+
+If the answer is “any amount” or “infinite,” that is not a position that anyone actually believes, whether about other people’s lives or even their own. Mr. Trump’s half-right on this: We do not shut down the entire economy in response to the flu each year, or in response to similar carnage on the roads. (One suspects the difference is novelty: If the automobile had just been invented, and it were known in advance that it would kill at least 36,000 Americans every year, I doubt it would be allowed on the market.)
+
+So we are not talking about saving every life, or preventing every death from COVID-19: We are trying to stave off a calamity, to prevent a truly catastrophic loss of life. The “cure” is admittedly blunt, and costly in the short-run. But it is working. The average growth rate in the number of cases, worldwide, is down to less than 10 per cent a day – not salvation by any means, but a third as fast as a month ago. The Imperial College experts, in a new study, estimate that social-distancing measures enacted across 11 European countries have saved 59,000 lives to date – 38,000 in Italy alone.
+
+Is it worth it? Let’s stipulate that the trade-off between fighting the epidemic and saving the economy is not so stark as might be imagined. An economic collapse would surely cost a lot of lives in different ways; conversely, leaving the epidemic to rage unopposed would lead to a great deal of lost output on its own. But accepting that a shutdown saves more lives and costs more output versus the alternative, what are the terms of the trade-off?
+
+There is actually something of an industry among economists in assessing these things, based not on some ghoulish calculus of their own, but people’s own “revealed preferences.” You’re thinking of buying a smoke detector for your home, at a cost of x dollars, knowing it would reduce your chances of dying in a fire by y per cent. You decide it’s not worth it. Presto: you have just assigned a value to your own life, equal to x/y. Studies of these and other decisions yield remarkably consistent results: a “value of statistical life,” as reported in the Washington Post and FiveThirtyEight, of US$9-million to US$11-million.
+
+Suppose, then, that social distancing succeeds in reducing the U.S. death toll from 2.2 million, the worst-case scenario, to “only” 100,000. That’s a cool US$21-trillion in lives saved, worth about as much as the entire U.S. GDP. Save Grandma.
   
 **Pâte feuilletée à 6 tours**
 
