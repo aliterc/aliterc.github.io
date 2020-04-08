@@ -206,6 +206,56 @@ Pour cette recette de pâte feuilletée rapide
 
 11 - On obtient une rondelle régulière pour les beignets et une découpe centrale esthétique pour les pommes séchées par exemple.
 
+1:33
+
+can I HAVE your passport please
+
+a bedroom for one person
+
+a doubleroom with one bed
+
+a twin room
+
+the room which looks out over the sea
+
+it costs more
+
+the suppliment
+
+10 euros per night per room
+
+no, not for those rooms
+
+the view is turely mignificant in the morning
+
+the room is on the third floor
+
+I wish you a pleasant stay in the hotel
+
+puis-je avoir votre passeport s’il vous plaît
+
+une chambre pour une personne
+
+une chambre double avec un lit
+
+une chambre double
+
+la pièce qui donne sur la mer
+
+il coûte plus cher
+
+le suppliment
+
+10 euros par nuit et par chambre
+
+Non, pas pour ces chambres
+
+la vue est turely mignificant le matin
+
+la chambre est au troisième étage
+
+Je vous souhaite un séjour agréable à l’hôtel
+
 - as a blogger
 
   我经常会写点小说，感想之类的。
