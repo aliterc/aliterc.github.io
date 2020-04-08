@@ -178,6 +178,34 @@ Pour cette recette de pâte feuilletée rapide
 
 500 g de farine - 300 g d'eau - 5 g de sel (soit un poids total de 800 g) - 400 g de beurre sec ou margarine à feuilletage si vous en possédez ou à défaut 400 g de beurre manié (300 g de beurre + 100 g de farine) - 1 coupe-pâte - 1 rouleau - 1 couteau d'office - 1 éminceur. Prévoir un peu d 'eau et de farine supplémentaire pour les mises au point et pour abaisser la pâte.
 
+   20200408
+   
+ **Eplucher et évider une pomme**
+ 
+ Sans vide-pomme.
+
+1 - A l'aide d'un couteau économe, piquer au niveau du calice de la pomme.
+
+2 - Et appliquer un mouvement circulaire.
+
+3 - Ôter le morceau et faire de même de l'autre côté au niveau du pédoncule.
+
+4 - Peler le fruit.
+
+5 - Citronner pour éviter l'oxydation.
+
+6 - Couper en deux.
+
+7 - Ôter le reste du trognon au couteau. La pomme est prête à être détaillée en lamelles pour réaliser une tarte fine ou en quartier pour une tarte Tatin.
+
+8 - Si vous avez besoin de belles tranches rondes pour beignets ou pommes séchées, peler la pomme, citronner...
+
+9 - Et couper en tranches de l'épaisseur voulue.
+
+10 - Ôter ensuite la partie du trognon au centre de la pomme avec un emporte pièce.
+
+11 - On obtient une rondelle régulière pour les beignets et une découpe centrale esthétique pour les pommes séchées par exemple.
+
 - as a blogger
 
   我经常会写点小说，感想之类的。
