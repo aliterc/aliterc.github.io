@@ -278,6 +278,36 @@ la chambre est au troisième étage
 
 Je vous souhaite un séjour agréable à l’hôtel
 
+   20200410
+   
+Quatre-quart
+
+Le plus simple des gâteaux.
+
+Chef Simon Préparation : 45' Facile
+
+1 - Mettre les oeufs et le sucre dans un cul-de-poule.
+
+2 - Blanchir ensemble.
+
+3 - Incorporer le beurre fondu refroidi en une fois. Mélanger. Obtenir une pâte lisse.
+
+4 - Ajouter la poudre à lever.
+
+5 - Incorporer la farine tamisée.
+
+6 - Obtenir une pâte homogène qui forme le ruban.
+
+7 - Verser dans un moule beurré et fariné et placer au four 40 minutes à 180°C (th 5/6).
+
+8 - Démouler en retournant le moule.
+
+9 - Décorer selon vos envies, glaçage, chantilly, fruits ou poudrer au sucre glace avec pochoir.
+
+10 - Ici un glaçage au sucre glace et jus d'orange sanguine.
+
+11 - Très bien aussi en gâteaux individuels (taille muffins).
+
 - as a blogger
 
   我经常会写点小说，感想之类的。
