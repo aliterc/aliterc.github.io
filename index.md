@@ -42,6 +42,30 @@ BELOW ARE MY CV
 
 [blog](https://allenneptune.wordpress.com/)
 
+blog down, so write here
+
+**A guide to living as a gay man in China**
+
+**1. Relationship- Marriage**
+Eight years ago, The Guardian ran a “weekend magazine gay special”, Emma Brockes wrote “gay parenting: it’s complicated”. 
+
+In 2013, Julia Preston reported “with no shortcut to a Green Card, gay couples leave U.S.” on The New York Times. 
+
+For gay couples in China, they can’t register as civil partners, they can’t get married.
+
+**2. Money**
+In Brokeback Mountain, the father ended up living in a camper van, maybe with a little under his name; his lover ended up getting beaten to death. This tragedy on The New Yorker tried to tell us gay men’s lives may not be easy. In China there is no gay rights group. Little help could one get when facing discrimination in jobs. Employees could be gay friendly and could be not. Who cares. 
+
+You must keep yourself financially strong, either with a solid technique background or knowledges of business running, if you are a gay man. 
+
+Jason Goldberg, one of the creators of online design site Fab.com was graduated from Stanford Graduate School of Business. He is gay. Fab was said to be a failure. Even professionals like him can’t avoid. 
+
+**3. Sex**
+BBC Radio 4 just ran a program titled “Big Disease with a little name”, in which a gay man told about his experience in the 90s of getting HIV from sex with his German boss. 
+
+HIV is not a gay men special disease. But as Dan Lepard noted on his Instagram, many gay men at his age died with AIDS in the 80s. So, gay sex has been tagged with this sexually transmittable disease.
+
+
 Email: covelneptune_gmail.com
 
 ## My works
