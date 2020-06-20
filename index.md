@@ -40,6 +40,80 @@ BELOW ARE MY CV
 
 # ZE LI
 
+**2008** 
+https://v.youku.com/v_show/id_XNTA2NDIyODQ=.html?spm=a2hzp.8244740.0.0
+
+client: China university of political science and law- students union
+software: AE
+
+**2009**
+https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0
+
+Client: China university of political science and law- western volunteer
+Software: AE, premier, Maya
+
+**2010**
+The letters
+  
+Client: China university of political science and law- CAPF military training
+Software: AE, premier, Maya
+
+**2011**
+Screenplay
+
+Client:: China university of political science and law- Murong Xuecun, a famous writer
+Software and skills: Word, screenplay writing, novel adaption, Chinese, Chinese-English translation
+
+**2012**
+Gay rights
+
+Student work
+Software and skills: Word, interview, information gathering, feature writing, news reporting, investigative
+
+**2013**
+The video
+
+Client: Vancouver Film School
+Software and skills: animation, video shooting, video editing, directing, acting, screenplay writing
+
+**2014**
+The video
+https://v.youku.com/v_show/id_XNDcxOTU5NjM4OA==.html
+
+No client
+Software and skills: video shooting, video editing, directing, acting, screenplay writing, Chinese-English translation, costume design
+
+**2015**
+The video
+
+No client
+Software and skills: video shooting, video editing, narration, Chinese-English translation, video production, premier
+
+**2016**
+The cartoons
+ 
+No client
+Software and skills: screenplay writing, drawing, coloring, ink and paper, digital art, Adobe, Autodesk
+
+**2017**
+Recipe book
+
+No client
+Software and skills: Illustrator, Word, InDesign
+
+**2018**
+The novel
+ 
+No client
+Software and skills: Word, dictionaries, news app
+
+**2019**
+Recipe book
+
+No client
+Software and skills: Word, cooking, Chinese- English translations, Ching hehuang, Ken Hom
+
+
 [blog](https://allenneptune.wordpress.com/)
 
 blog down, so write here
