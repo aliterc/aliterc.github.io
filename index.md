@@ -41,13 +41,13 @@ BELOW ARE MY CV
 # ZE LI
 
 **2008** 
-https://v.youku.com/v_show/id_XNTA2NDIyODQ=.html?spm=a2hzp.8244740.0.0
+[link](https://v.youku.com/v_show/id_XNTA2NDIyODQ=.html?spm=a2hzp.8244740.0.0)
 
 client: China university of political science and law- students union
 software: AE
 
 **2009**
-https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0
+[link](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0)
 
 Client: China university of political science and law- western volunteer
 Software: AE, premier, Maya
@@ -78,7 +78,7 @@ Software and skills: animation, video shooting, video editing, directing, acting
 
 **2014**
 The video
-https://v.youku.com/v_show/id_XNDcxOTU5NjM4OA==.html
+[link](https://v.youku.com/v_show/id_XNDcxOTU5NjM4OA==.html)
 
 No client
 Software and skills: video shooting, video editing, directing, acting, screenplay writing, Chinese-English translation, costume design
