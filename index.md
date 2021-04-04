@@ -43,14 +43,20 @@ BELOW ARE MY CV
 **2008** 
 [link](https://v.youku.com/v_show/id_XNTA2NDIyODQ=.html?spm=a2hzp.8244740.0.0)
 
-client: China university of political science and law- students union
-software: AE
+client: China university of political science and law- students union 中国政法大学 学生代表大会宣传片
+software: AE, PS, PR
 
 **2009**
 [link](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0)
 
-Client: China university of political science and law- western volunteer
-Software: AE, premier, Maya
+Client: China university of political science and law- western volunteer 西部志愿者协会 西部志愿者协会支教记录
+Software: AE, Maya, PS, PR, Video, photo
+
+比赛 全国文科计算机设计比赛
+PS
+
+中国政法大学 国庆游行活动记录
+AE, Maya, PR, PS, Photo
 
 **2010**
 The letters
