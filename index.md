@@ -36,6 +36,150 @@ Your Pages site will use the layout and styles from the Jekyll theme you have se
 
 Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
 
+video
+-tv programs
+ 2009
+ 汴京欢庆图
+ 3D objects by Maya, lighting and 3D layers in After Effects
+ 2009
+ 乡村教师图
+ Beautiful scenery in western China.
+ 2013
+ Richard Mabey recipes visualization 
+ [link]"my texts, your images"
+https://www.youtube.com/user/CovelNeptune/videos
+ A Chinese woman cooks two Chinese dishes.
+ 2015
+ 冬去春来图
+ https://alitercovel.portfoliobox.net/showcase/tv
+ Beautiful scenery in Zhongnan mountain 终南山 in China.
+photos
+-street photography
+ 2009/2010
+ 火车站组图
+ Passengers wait for trains in China.
+ 2009/2010 
+ 美女回眸图
+ A Chinese woman visits Great wall in spring.
+ 2011/2012
+ Woman caught in the rain
+ I was under an umbrella with my camera of course. I like faces.
+-food
+ 2011
+ 橙汁面条图
+ Off focus food porn photo by a film camera.
+-portrait
+ 2011
+ 两亲饭组图
+ Off focus photo of my dad by a film camera.
+ 2011/2012
+ Alexander Lerch's Indian friend
+ Snatch of a classmate smoking outside the building.
+-landscape
+ 2011/2012
+ London bowl stadium
+ I was trying to do postcard like photos.
+ 2011/2012
+ SS Bristol bridge
+ It should be better with balloons.
+films
+-I began to try to organize films in late 2010.
+ 2010
+ 海蓝心蓝图 本片参加北京大学生电影节
+ A Chinese woman and a Chinese man's long struggling love story.
+ 2011-2016
+ 大宋少药图 Vancouver Film School entrance scholarship
+ [link] Bram Stoker “my texts, your words”
+ A Chinese writer helps local police against crime.
+ 2012
+ Madam Snake 
+ 2014-2021
+ 五女出家图
+ Pride and prejudice.
+drawings
+-portrait
+ 2011/2012
+ Self portrait
+ https://aliterc.github.io/images/2016/2012_photoshop.jpg
+Myself listen to music on a plane. I can't draw in Photoshop.
+ 2016
+ 男女便面图
+ https://www.behance.net/gallery/34495047/RT-restaurant-post
+ A Chinese couple eat pot noodles on a train. Sketchbook app.
+ 2017
+男人头像图
+https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg 
+The first time I tried Zbrush.
+ 2018
+ 男人铁板图
+ https://aliterc.github.io/images/2016/2019_watercolor.jpg
+ A Russian I suppose cooks and drinks. Watercolor with anatomy.
+ 2018
+ 男人餐桌图
+ https://covelzeli1990.files.wordpress.com/2018/11/20181121_163829-1.jpg
+ A man serves in front of a dining table on a spaceship.
+ 2019
+ 赤膊男人图
+ https://aliterc.github.io/images/2016/2020_watercolor.jpg
+A Thai cook, topless, sits.
+ 2020
+ 男女开车图
+ https://www.instagram.com/covelneptune/
+ "Red Cameron" by Keith Urban.
+ 2021
+ 孙燕姿头图
+ https://www.instagram.com/covelneptune/
+ Watercolor with anatomy and proportions.
+ 2021
+ 甘道夫头图
+ https://www.instagram.com/covelneptune/
+ Pencil sketch with anatomy and proportions.
+-food
+ 2015
+ 海洋鱼类图
+ https://www.behance.net/gallery/28213223/illustration-for-a-cooking-book
+ Fishes. Photoshop.
+ 2016
+ 西洋面包图
+ https://www.behance.net/gallery/36880921/RT-new-products-post-with-a-movie
+ A cinnamon roll.
+ 2017
+ 家常菜组图
+ https://www.youtube.com/user/CovelNeptune/videos
+ Illustrations. I can't use a mouse to draw in Illustrator.
+ 2018
+ 男人油条图
+ https://covelzeli1990.files.wordpress.com/2018/11/20181119_160402-1.jpg
+ Chinese food.
+ 2018
+ 西洋蛋糕图
+ https://covelzeli1990.files.wordpress.com/2018/11/20181126_103922-1winter.jpg
+ Cakes.
+ 2020
+ 猪肉汽水图
+ Chinese food.
+ 2020
+ 西洋汉堡图
+ https://covelzeli1990.files.wordpress.com/2021/03/screenshot_2021-03-16-18-09-39-48.png
+ Chicken burger. Color pencil.
+ 2021
+ 西洋麦芬图
+https://covelzeli1990.files.wordpress.com/2021/03/img_20210316_170633_119.jpg
+A muffin. Color pencil and watercolor.
+ 2021
+ 美女炸鸡图
+ La donna eats fried chicken.
+ And, a lot of drinks
+-illustrations
+-cartoon
+Writings
+-news
+-essays and blogs
+-novels
+ -Chinese
+ -English
+ 
+
 BELOW ARE MY CV
 
 # ZE LI
