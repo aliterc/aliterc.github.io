@@ -136,13 +136,13 @@ _I began to try to organize films in late 2010._
 
 - 2010
 
-**海蓝心蓝图**_本片参加北京大学生电影节_
+**海蓝心蓝图** _本片参加北京大学生电影节_
 
 _A Chinese woman and a Chinese man's long struggling love story._
 
 - 2011-2016
 
-**大宋少药图**_Vancouver Film School entrance scholarship_
+**大宋少药图** _Vancouver Film School entrance scholarship_
 
 [Bram Stoker “my texts, your words”](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
  
@@ -150,7 +150,7 @@ _A Chinese writer helps local police against crime._
 
 - 2012
 
-**Madam Snake**_The Guardian short film_
+**Madam Snake** _The Guardian short film_
 
 _Two snakes._
 
@@ -168,86 +168,161 @@ _Pride and prejudice._
 
 **Self portrait**
 
-【image](https://aliterc.github.io/images/2016/2012_photoshop.jpg)
+[image](https://aliterc.github.io/images/2016/2012_photoshop.jpg)
 
 _Myself listen to music on a plane. I can't draw in Photoshop._
 
- 2016
- 男女便面图
- https://www.behance.net/gallery/34495047/RT-restaurant-post
- A Chinese couple eat pot noodles on a train. Sketchbook app.
- 2017
-男人头像图
-https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg 
-The first time I tried Zbrush.
- 2018
- 男人铁板图
- https://aliterc.github.io/images/2016/2019_watercolor.jpg
- A Russian I suppose cooks and drinks. Watercolor with anatomy.
- 2018
- 男人餐桌图
- https://covelzeli1990.files.wordpress.com/2018/11/20181121_163829-1.jpg
- A man serves in front of a dining table on a spaceship.
- 2019
- 赤膊男人图
- https://aliterc.github.io/images/2016/2020_watercolor.jpg
-A Thai cook, topless, sits.
- 2020
- 男女开车图
- https://www.instagram.com/covelneptune/
- "Red Cameron" by Keith Urban.
- 2021
- 孙燕姿头图
- https://www.instagram.com/covelneptune/
- Watercolor with anatomy and proportions.
- 2021
- 甘道夫头图
- https://www.instagram.com/covelneptune/
- Pencil sketch with anatomy and proportions.
--food
- 2015
- 海洋鱼类图
- https://www.behance.net/gallery/28213223/illustration-for-a-cooking-book
- Fishes. Photoshop.
- 2016
- 西洋面包图
- https://www.behance.net/gallery/36880921/RT-new-products-post-with-a-movie
- A cinnamon roll.
- 2017
- 家常菜组图
- https://www.youtube.com/user/CovelNeptune/videos
- Illustrations. I can't use a mouse to draw in Illustrator.
- 2018
- 男人油条图
- https://covelzeli1990.files.wordpress.com/2018/11/20181119_160402-1.jpg
- Chinese food.
- 2018
- 西洋蛋糕图
- https://covelzeli1990.files.wordpress.com/2018/11/20181126_103922-1winter.jpg
- Cakes.
- 2020
- 猪肉汽水图
- Chinese food.
- 2020
- 西洋汉堡图
- https://covelzeli1990.files.wordpress.com/2021/03/screenshot_2021-03-16-18-09-39-48.png
- Chicken burger. Color pencil.
- 2021
- 西洋麦芬图
-https://covelzeli1990.files.wordpress.com/2021/03/img_20210316_170633_119.jpg
-A muffin. Color pencil and watercolor.
- 2021
- 美女炸鸡图
- La donna eats fried chicken.
- And, a lot of drinks
--illustrations
--cartoon
-Writings
--news
--essays and blogs
--novels
- -Chinese
- -English
+- 2016
+
+**男女便面图**
+
+[link](https://www.behance.net/gallery/34495047/RT-restaurant-post)
+
+_A Chinese couple eat pot noodles on a train. Sketchbook app._
+
+- 2017
+
+**男人头像图**
+
+[image](https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg)
+
+_The first time I tried Zbrush._
+
+- 2018
+
+**男人铁板图**
+
+[image](https://aliterc.github.io/images/2016/2019_watercolor.jpg)
+
+_A Russian I suppose cooks and drinks. Watercolor with anatomy._
+
+- 2018
+
+**男人餐桌图**
+ 
+[image](https://covelzeli1990.files.wordpress.com/2018/11/20181121_163829-1.jpg)
+
+_A man serves in front of a dining table on a spaceship._
+
+- 2019
+ 
+**赤膊男人图**
+
+[image](https://aliterc.github.io/images/2016/2020_watercolor.jpg)
+
+_A Thai cook, topless, sits._
+
+- 2020
+
+**男女开车图**
+
+[link](https://www.instagram.com/covelneptune/)
+
+_"Red Cameron" by Keith Urban._
+
+- 2021
+
+**孙燕姿头图**
+
+[link](https://www.instagram.com/covelneptune/)
+
+_Watercolor with anatomy and proportions._
+
+- 2021
+
+**甘道夫头图**
+
+[link](https://www.instagram.com/covelneptune/)
+
+_Pencil sketch with anatomy and proportions._
+
+## food
+
+-2015
+
+**海洋鱼类图**
+
+[link](https://www.behance.net/gallery/28213223/illustration-for-a-cooking-book)
+
+_Fishes. Photoshop._
+
+- 2016
+
+**西洋面包图**
+
+[link](https://www.behance.net/gallery/36880921/RT-new-products-post-with-a-movie)
+
+_A cinnamon roll._
+
+- 2017
+ 
+**家常菜组图**
+
+[link](https://www.youtube.com/user/CovelNeptune/videos)
+
+_Illustrations. I can't use a mouse to draw in Illustrator._
+
+- 2018
+
+**男人油条图**
+
+[image](https://covelzeli1990.files.wordpress.com/2018/11/20181119_160402-1.jpg)
+
+_Chinese food._
+
+- 2018
+
+**西洋蛋糕图**
+
+[image](https://covelzeli1990.files.wordpress.com/2018/11/20181126_103922-1winter.jpg)
+ 
+_Cakes._
+
+- 2020
+
+**猪肉汽水图**
+
+_Chinese food._
+
+- 2020
+
+**西洋汉堡图**
+
+[image](https://covelzeli1990.files.wordpress.com/2021/03/screenshot_2021-03-16-18-09-39-48.png)
+
+_Chicken burger. Color pencil._
+
+- 2021
+
+**西洋麦芬图**
+
+[image](https://covelzeli1990.files.wordpress.com/2021/03/img_20210316_170633_119.jpg)
+
+_A muffin. Color pencil and watercolor._
+
+- 2021
+
+**美女炸鸡图**
+
+_La donna eats fried chicken._
+
+_And, a lot of drinks._
+
+## illustrations
+
+## cartoon
+
+# Writings
+
+## news
+
+## essays and blogs
+
+## novels
+
+### Chinese
+
+### English
  
 
 BELOW ARE MY CV
