@@ -122,6 +122,8 @@ _Snatch of a classmate smoking outside the building._
 
 **London bowl stadium**
 
+[link](https://500px.com/photo/37698474/2012-Olympic-Stadium-in-London-by-ze-li)
+
 _I was trying to do postcard like photos._
 
 - 2011/2012
@@ -168,7 +170,7 @@ _Pride and prejudice._
 
 **Self portrait**
 
-[image](https://aliterc.github.io/images/2016/2012_photoshop.jpg)
+![image](https://aliterc.github.io/images/2016/2012_photoshop.jpg)
 
 _Myself listen to music on a plane. I can't draw in Photoshop._
 
@@ -184,7 +186,7 @@ _A Chinese couple eat pot noodles on a train. Sketchbook app._
 
 **男人头像图**
 
-[image](https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg)
+![image](https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg)
 
 _The first time I tried Zbrush._
 
@@ -192,7 +194,7 @@ _The first time I tried Zbrush._
 
 **男人铁板图**
 
-[image](https://aliterc.github.io/images/2016/2019_watercolor.jpg)
+![image](https://aliterc.github.io/images/2016/2019_watercolor.jpg)
 
 _A Russian I suppose cooks and drinks. Watercolor with anatomy._
 
@@ -200,7 +202,7 @@ _A Russian I suppose cooks and drinks. Watercolor with anatomy._
 
 **男人餐桌图**
  
-[image](https://covelzeli1990.files.wordpress.com/2018/11/20181121_163829-1.jpg)
+![image](https://covelzeli1990.files.wordpress.com/2018/11/20181121_163829-1.jpg)
 
 _A man serves in front of a dining table on a spaceship._
 
@@ -208,7 +210,7 @@ _A man serves in front of a dining table on a spaceship._
  
 **赤膊男人图**
 
-[image](https://aliterc.github.io/images/2016/2020_watercolor.jpg)
+![image](https://aliterc.github.io/images/2016/2020_watercolor.jpg)
 
 _A Thai cook, topless, sits._
 
@@ -266,7 +268,7 @@ _Illustrations. I can't use a mouse to draw in Illustrator._
 
 **男人油条图**
 
-[image](https://covelzeli1990.files.wordpress.com/2018/11/20181119_160402-1.jpg)
+![image](https://covelzeli1990.files.wordpress.com/2018/11/20181119_160402-1.jpg)
 
 _Chinese food._
 
@@ -274,7 +276,7 @@ _Chinese food._
 
 **西洋蛋糕图**
 
-[image](https://covelzeli1990.files.wordpress.com/2018/11/20181126_103922-1winter.jpg)
+![image](https://covelzeli1990.files.wordpress.com/2018/11/20181126_103922-1winter.jpg)
  
 _Cakes._
 
@@ -288,7 +290,7 @@ _Chinese food._
 
 **西洋汉堡图**
 
-[image](https://covelzeli1990.files.wordpress.com/2021/03/screenshot_2021-03-16-18-09-39-48.png)
+![image](https://covelzeli1990.files.wordpress.com/2021/03/screenshot_2021-03-16-18-09-39-48.png)
 
 _Chicken burger. Color pencil._
 
@@ -296,7 +298,7 @@ _Chicken burger. Color pencil._
 
 **西洋麦芬图**
 
-[image](https://covelzeli1990.files.wordpress.com/2021/03/img_20210316_170633_119.jpg)
+![image](https://covelzeli1990.files.wordpress.com/2021/03/img_20210316_170633_119.jpg)
 
 _A muffin. Color pencil and watercolor._
 
