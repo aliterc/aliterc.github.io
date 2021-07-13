@@ -52,66 +52,126 @@ _3D objects by Maya, lighting and 3D layers in After Effects_
 
 [link](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0)
 
- _Beautiful scenery in western China._
+_Beautiful scenery in western China._
+
+- 2013
+
+**Richard Mabey recipes visualization**
+
+["my texts, your images"](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
+
+[link](https://www.youtube.com/user/CovelNeptune/videos)
+
+_A Chinese woman cooks two Chinese dishes._
+
+- 2015
+
+**冬去春来图**
+
+[link](https://alitercovel.portfoliobox.net/showcase/tv)
+
+_Beautiful scenery in Zhongnan mountain 终南山 in China._
+
+# photos
+
+## street photography
+
+- 2009/2010
+
+**火车站组图**
+
+_Passengers wait for trains in China._
+
+- 2009/2010
+
+**美女回眸图**
+
+_A Chinese woman visits Great wall in spring._
+
+- 2011/2012
+
+**Woman caught in the rain**
+
+_I was under an umbrella with my camera of course. I like faces._
+
+## food
+
+- 2011
+
+**橙汁面条图**
+
+_Off focus food porn photo by a film camera._
+
+## portrait
+
+- 2011
+
+**两亲饭组图**
+
+_Off focus photo of my dad by a film camera._
+
+- 2011/2012
  
- 2013
- Richard Mabey recipes visualization 
- [link]"my texts, your images"
-https://www.youtube.com/user/CovelNeptune/videos
- A Chinese woman cooks two Chinese dishes.
- 2015
- 冬去春来图
- https://alitercovel.portfoliobox.net/showcase/tv
- Beautiful scenery in Zhongnan mountain 终南山 in China.
-photos
--street photography
- 2009/2010
- 火车站组图
- Passengers wait for trains in China.
- 2009/2010 
- 美女回眸图
- A Chinese woman visits Great wall in spring.
- 2011/2012
- Woman caught in the rain
- I was under an umbrella with my camera of course. I like faces.
--food
- 2011
- 橙汁面条图
- Off focus food porn photo by a film camera.
--portrait
- 2011
- 两亲饭组图
- Off focus photo of my dad by a film camera.
- 2011/2012
- Alexander Lerch's Indian friend
- Snatch of a classmate smoking outside the building.
--landscape
- 2011/2012
- London bowl stadium
- I was trying to do postcard like photos.
- 2011/2012
- SS Bristol bridge
- It should be better with balloons.
-films
--I began to try to organize films in late 2010.
- 2010
- 海蓝心蓝图 本片参加北京大学生电影节
- A Chinese woman and a Chinese man's long struggling love story.
- 2011-2016
- 大宋少药图 Vancouver Film School entrance scholarship
- [link] Bram Stoker “my texts, your words”
- A Chinese writer helps local police against crime.
- 2012
- Madam Snake 
- 2014-2021
- 五女出家图
- Pride and prejudice.
-drawings
--portrait
- 2011/2012
- Self portrait
- https://aliterc.github.io/images/2016/2012_photoshop.jpg
-Myself listen to music on a plane. I can't draw in Photoshop.
+**Alexander Lerch's Indian friend**
+
+_Snatch of a classmate smoking outside the building._
+
+## landscape
+
+- 2011/2012
+
+**London bowl stadium**
+
+_I was trying to do postcard like photos._
+
+- 2011/2012
+
+**SS Bristol bridge**
+
+_It should be better with balloons._
+
+# films
+
+_I began to try to organize films in late 2010._
+
+- 2010
+
+**海蓝心蓝图**_本片参加北京大学生电影节_
+
+_A Chinese woman and a Chinese man's long struggling love story._
+
+- 2011-2016
+
+**大宋少药图**_Vancouver Film School entrance scholarship_
+
+[Bram Stoker “my texts, your words”](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
+ 
+_A Chinese writer helps local police against crime._
+
+- 2012
+
+**Madam Snake**_The Guardian short film_
+
+_Two snakes._
+
+- 2014-2021
+
+**五女出家图**
+
+_Pride and prejudice._
+
+# drawings
+
+## portrait
+
+- 2011/2012
+
+**Self portrait**
+
+【image](https://aliterc.github.io/images/2016/2012_photoshop.jpg)
+
+_Myself listen to music on a plane. I can't draw in Photoshop._
+
  2016
  男女便面图
  https://www.behance.net/gallery/34495047/RT-restaurant-post
