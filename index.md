@@ -92,6 +92,8 @@ _A Chinese woman visits Great wall in spring._
 
 **Woman caught in the rain**
 
+[link](https://flickr.com/photos/covelsshop/14276604495/)
+
 _I was under an umbrella with my camera of course. I like faces._
 
 ## food
@@ -220,6 +222,8 @@ _A Thai cook, topless, sits._
 
 [link](https://www.instagram.com/covelneptune/)
 
+[link](https://flickr.com/photos/192540500@N04/51308379398/)
+
 _"Red Cameron" by Keith Urban._
 
 - 2021
@@ -284,6 +288,8 @@ _Cakes._
 
 **猪肉汽水图**
 
+[link](https://flickr.com/photos/192540500@N04/51309188325/)
+
 _Chinese food._
 
 - 2020
@@ -305,6 +311,8 @@ _A muffin. Color pencil and watercolor._
 - 2021
 
 **美女炸鸡图**
+
+[link](https://flickr.com/photos/192540500@N04/51309188020/)
 
 _La donna eats fried chicken._
 
