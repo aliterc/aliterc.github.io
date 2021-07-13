@@ -336,9 +336,12 @@ _And, a lot of drinks._
 
 Year | Name | Description
 ---- | ---- | -----------
+2009 | 汴京欢庆图 | 3D objects by Maya, lighting and 3D layers in After Effects
 2009 | [乡村教师图](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0) | Beautiful scenery in western China.
-2009 | [乡村教师图](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0) | Beautiful scenery in western China.
-2009 | [乡村教师图](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0) | Beautiful scenery in western China.
+2013 | [Richard Mabey recipes visualization](https://www.youtube.com/user/CovelNeptune/videos) |  A Chinese woman cooks two Chinese dishes.
+2013 | [冬去春来图](https://alitercovel.portfoliobox.net/showcase/tv) |   Beautiful scenery in Zhongnan mountain 终南山 in China.
+
+UPDATED ON 07132021
 
 BELOW ARE MY CV
 
