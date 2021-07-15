@@ -363,8 +363,7 @@ Year | Name | Description
 2016 | 厦门下雨图 | Remake of the last picture. #CocaCola
 2016 | The wild | A cartoon in black and white Chinese ink. Oringinal story. Written and directed by Ze Covel Li. #CocaCola #triple
 2016 | 可乐五组图 | Color pencil of my ideas of advertising 1.25L Coke. #CocaCola
-2016 | 福建的林图 | Lots of advertisements in one video about Rio Olympics. #CocaCola
-#Skittle
+2016 | 福建的林图 | Lots of advertisements in one video about Rio Olympics. #CocaCola #Skittle
 2017 | Wong Yong and Zhu Chen | Monthly cartoon in digital color. Oringinal story. #CocaCola #triple
 2017 | [家常菜组图](https://www.youtube.com/user/CovelNeptune/videos) | Illustrations. I can't use a mouse to draw in Illustrator. I appraoched soome CocaCola staff and told them about my idea of selling the drinks, CocaCola + Chinese food. #CocaCola
 2018 | Wong Yong and Zhu Chen | Weekly magazine containing a novel, some news and a recipe. It has been printed out sometimes with HD image ads. #CocaCola #triple
