@@ -338,10 +338,20 @@ Year | Name | Description
 ---- | ---- | -----------
 2009 | 汴京欢庆图 | 3D objects by Maya, lighting and 3D layers in After Effects
 2009 | [乡村教师图](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0) | Beautiful scenery in western China.
-2013 | [Richard Mabey recipes visualization](https://www.youtube.com/user/CovelNeptune/videos) |  A Chinese woman cooks two Chinese dishes.
-2013 | [冬去春来图](https://alitercovel.portfoliobox.net/showcase/tv) |   Beautiful scenery in Zhongnan mountain 终南山 in China.
-
-UPDATED ON 07132021
+2013 | [Richard Mabey recipes visualization](https://www.youtube.com/user/CovelNeptune/videos) |  A Chinese woman cooks two Chinese dishes. 
+2013 | [冬去春来图](https://alitercovel.portfoliobox.net/showcase/tv) |  Beautiful scenery in Zhongnan mountain 终南山 in China. #seasons
+2011 | 政法植树图 | I was trying to make trees in 3Ds Max. I also know how many trees and their locations in the school. #plants
+2017 | [男人头像图](https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg) | I tried to make an animated tree man in 3D software. It ended up like this. #plants #human
+2017 | 长白天山图 | An attempt to document forests in China's northmost border region. I fell in love with trees.
+ #plants
+2018 | Billy Yin | A story about three Chinese men at the age of 20, 50, 70. #fiction
+2013 | 大宋少药文 | A script of the story of a Chinese writer who helps police to tackle crime.
+2020 | mf of China | Articles about latest research on selected mountains in China. #mountains #forests #nature
+2018 | [男人铁板图](https://aliterc.github.io/images/2016/2019_watercolor.jpg)| A Russian I suppose cooks and drinks. Watercolor with anatomy. #human 
+2021 | [甘道夫头图](https://www.instagram.com/covelneptune/) | Pencil sketch with anatomy and proportions. #human
+2010 | 炒面 | A roommate taught me. #recette
+ 
+UPDATED ON 0713/152021
 
 BELOW ARE MY CV
 
