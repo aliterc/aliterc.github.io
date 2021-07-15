@@ -344,11 +344,43 @@ Year | Name | Description
 2017 | [男人头像图](https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg) | I tried to make an animated tree man in 3D software. It ended up like this. #plants #human
 2017 | 长白天山图 | An attempt to document forests in China's northmost border region. I fell in love with trees. #plants
 2018 | Billy Yin | A story about three Chinese men at the age of 20, 50, 70. #fiction
-2013 | 大宋少药文 | A script of the story of a Chinese writer who helps police to tackle crime.
+2014 | 大宋少药文 | A script of the story of a Chinese writer who helps police to tackle crime.
 2020 | mf of China | Articles about latest research on selected mountains in China. #mountains #forests #nature
 2018 | [男人铁板图](https://aliterc.github.io/images/2016/2019_watercolor.jpg)| A Russian I suppose cooks and drinks. Watercolor with anatomy. #human 
 2021 | [甘道夫头图](https://www.instagram.com/covelneptune/) | Pencil sketch with anatomy and proportions. #human
 2010 | 炒面 | A roommate taught me. #recette
+2008 | 可口可乐北京校园经理销售比赛 | Two of my classmates helped. One gave ideas and the other gave time. #CocaCola
+2011 | 橙汁面条图 | Off focus food porn photo by a film camera. #CocaCola
+2014 | Oxford apple tree | An animation for my website. #CocaCola
+2014 | 西洋火车图 | Draig dw i. #CocaCola
+2015 | [海洋鱼类图](https://www.behance.net/gallery/28213223/illustration-for-a-cooking-book) | Fishes. Photoshop. My boss was a CocaCola salesman. He wanted to teach me to be a salesman. #CocaCola
+2015 | 美女汽水图 | NYU application video. #CocaCola
+2016 | [西洋面包图](https://www.behance.net/gallery/36880921/RT-new-products-post-with-a-movie) | A cinnamon roll. #CocaCola
+2016 | 面包牛奶图 | Some of Jesus' followers hold different #CocaCola prodcuts.
+2016 | 红黑下雨图 | A Peking Uni student killed his mother. #CocaCola
+2016 | 少男组合图 | A pop band of teenage boys did an ad for CocaCola with lots of bubbles on an orange background. I made my own version. #CocaCola
+2016 | 可口可乐中国 | A temp in sales. #CocaCola
+2016 | 厦门下雨图 | Remake of the last picture. #CocaCola
+2016 | The wild | A cartoon in black and white Chinese ink. Oringinal story. Written and directed by Ze Covel Li. #CocaCola #triple
+2016 | 可乐五组图 | Color pencil of my ideas of advertising 1.25L Coke. #CocaCola
+2016 | 福建的林图 | Lots of advertisements in one video about Rio Olympics. #CocaCola
+#Skittle
+2017 | Wong Yong and Zhu Chen | Monthly cartoon in digital color. Oringinal story. #CocaCola #triple
+2017 | [家常菜组图](https://www.youtube.com/user/CovelNeptune/videos) | Illustrations. I can't use a mouse to draw in Illustrator. I appraoched soome CocaCola staff and told them about my idea of selling the drinks, CocaCola + Chinese food. #CocaCola
+2018 | Wong Yong and Zhu Chen | Weekly magazine containing a novel, some news and a recipe. It has been printed out sometimes with HD image ads. #CocaCola #triple
+2018 | 我是杨澜图 | I took a picture of myself with a bottle of water as an ad. It later became a drawing of Lu Han with the bottle of water on my notebook. #CocaCola
+2018 | [男人铁板图](https://aliterc.github.io/images/2016/2019_watercolor.jpg)| A Russian I suppose cooks and drinks. Watercolor with anatomy. #human This is how the a photo became a A4 size drawing on the back of a print paper. I remember it was not a A4 paper but a larger drawing paper I bought from a print shop. I later even gave it a plastic layer for protection. It has the idea that Russia could give some water to China from its lakes. #CocaCola
+2019 | 麻婆豆腐| A Ching recipe. I photoed it with a CocaCola product. #CocaCola #recette
+2020 | [猪肉汽水图](https://flickr.com/photos/192540500@N04/51309188325/) | Chinese food. I spent a summer developing recipes. #CocaCola I am not doing a cooking show. I tasted nearly all of CocaCola prodcuts to try to match a wine with a dish, like Ken could do. Some say CocaCola is red wine, some say it's vinegar. 
+2020 | [男女开车图](https://flickr.com/photos/192540500@N04/51308379398/) | "Red Cameron" by Keith Urban. I visualised nearly every detail in the lyric. He also wrote songs mentioned PepsiCola and likes McDonald's breakfast. #CocaCola ["my texts, your images"](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
+2020 | 三美少年图 | It is a remake of a pop band's photo. #CocaCola #triple
+2020 | 夏日大风图 | A song called Trailerhood. #CocaCola
+2020 | 男人三段图 | The young, the middle age, the old, for the novel I wrote. #CocaCola #triple
+2020 | 爱迪生坐图 | Edison. Remake of the cover of "家常菜组图". #CocaCola
+2021 | 宫保鸡丁图 | Kong po chicken with a Coke. #CocaCola
+2021 | 咕老肉汁图 | Sweet and sour pork with a drink. Very orange. #CocaCola
+2021 | 离别晓风图 | A drawinig based on a Chinese poem about sending off a lover after a night of drinking. #CocaCola #triple
+2021 | 夏日亲水图 | A drawing inspired by two CocaCola tv commercials. #CocaCola 
  
 UPDATED ON 0713/152021
 
