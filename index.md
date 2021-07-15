@@ -342,8 +342,7 @@ Year | Name | Description
 2013 | [冬去春来图](https://alitercovel.portfoliobox.net/showcase/tv) |  Beautiful scenery in Zhongnan mountain 终南山 in China. #seasons
 2011 | 政法植树图 | I was trying to make trees in 3Ds Max. I also know how many trees and their locations in the school. #plants
 2017 | [男人头像图](https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg) | I tried to make an animated tree man in 3D software. It ended up like this. #plants #human
-2017 | 长白天山图 | An attempt to document forests in China's northmost border region. I fell in love with trees.
- #plants
+2017 | 长白天山图 | An attempt to document forests in China's northmost border region. I fell in love with trees. #plants
 2018 | Billy Yin | A story about three Chinese men at the age of 20, 50, 70. #fiction
 2013 | 大宋少药文 | A script of the story of a Chinese writer who helps police to tackle crime.
 2020 | mf of China | Articles about latest research on selected mountains in China. #mountains #forests #nature
