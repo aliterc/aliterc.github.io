@@ -402,6 +402,26 @@ _I started writing the draft on a notebook on a high-speed train. I was writing 
 
 Year | Name | Description
 ---- | ---- | -----------
+2008 | 手绘图组图 | h100cm w150cm Student activities.
+2008 | 艺谋画卷图 | It was for the cover of a flier. It was from Yimou Zhang's opening of a painting thing. Later it became 3D in a video I made.
+2008 | 荷花南童图 | Four boys sit on lotus leaves, holding camera, computer, paint brush and pen.
+2009 | 政法景点图 | Using After Effects to make an introduction to a video.
+2009 | 新标识组图 | I designed some logos. 
+2009 | 过节日组图 | Teamwork of post design.
+2009 | 政法牛雕图 | Tried to make an animal sculpture.
+2010 | 军队内宣图 | Visual effects including making silk crossing 3D logos, an envelope, the opening Chinese painting scroll, animated. 
+2010 | 海蓝心蓝图 | A Chinese woman and a Chinese man's long struggling love story.
+2010 | 威廉大婚图 | Got a Wacom.
+2011 | Man in 30 | Got up early and shot some clips.
+2012 | Birthday girl | I had a scanner-printer.
+2012 | Man, woman | Sketches.
+2012 | [Self portrait](https://aliterc.github.io/images/2016/2012_photoshop.jpg)| 
+Myself listen to music on a plane. I can't draw in Photoshop.
+2012 | Johan in fish belly | I found it hard to draw this Bible stories. I do have more Bible stories drawn in 2014. I printed out this picture to be postcards and got them sent.
+2013 | Anna with her mother| I can't remember why I drew it.
+2013 | French man| A French worker taught me a little French.
+2013 | 迎接马年图 | Horse related Bible story.
+2014 | Bible stories| More pictures based on parts of the Bible. I can't draw very well.
 2009 | 汴京欢庆图 | 3D objects by Maya, lighting and 3D layers in After Effects
 2009 | [乡村教师图](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0) | Beautiful scenery in western China.
 2013 | [Richard Mabey recipes visualization](https://www.youtube.com/user/CovelNeptune/videos) |  A Chinese woman cooks two Chinese dishes. 
