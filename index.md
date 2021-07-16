@@ -370,7 +370,9 @@ Year | Name | Description
 2017 | [Wong Yong and Zhu Chen](https://www.behance.net/allenenterbreak) | Monthly cartoon in digital color. Oringinal story. #CocaCola #triple
 2017 | [家常菜组图](https://www.youtube.com/user/CovelNeptune/videos) | Illustrations. I can't use a mouse to draw in Illustrator. I appraoched soome CocaCola staff and told them about my idea of selling the drinks, CocaCola + Chinese food. #CocaCola
 2018 | Wong Yong and Zhu Chen | Weekly magazine containing a novel, some news and a recipe. It has been printed out sometimes with HD image ads. #CocaCola #triple
+2018 | porc et riz | French translation of Chinese recipes. You could find more. #CocaCola
 2018 | 我是杨澜图 | I took a picture of myself with a bottle of water as an ad. It later became a drawing of Lu Han with the bottle of water on my notebook. #CocaCola
+2020 | [红衣汽水图](https://flickr.com/photos/192540500@N04/51308379283/) | I took a picture of myself with a bottle of drink as an ad. It later became a drawing of myself with the bottle of drink. #CocaCola
 2018 | [男人铁板图](https://aliterc.github.io/images/2016/2019_watercolor.jpg)| A Russian I suppose cooks and drinks. Watercolor with anatomy. #human This is how the a photo became a A4 size drawing on the back of a print paper. I remember it was not a A4 paper but a larger drawing paper I bought from a print shop. I later even gave it a plastic layer for protection. It has the idea that Russia could give some water to China from its lakes. #CocaCola
 2019 | 麻婆豆腐| A Ching recipe. I photoed it with a CocaCola product. #CocaCola #recette
 2020 | [猪肉汽水图](https://flickr.com/photos/192540500@N04/51309188325/) | Chinese food. I spent a summer developing recipes. #CocaCola I am not doing a cooking show. I tasted nearly all of CocaCola prodcuts to try to match a wine with a dish, like Ken could do. Some say CocaCola is red wine, some say it's vinegar. 
@@ -378,11 +380,11 @@ Year | Name | Description
 2020 | 三美少年图 | It is a remake of a pop band's photo. #CocaCola #triple
 2020 | 夏日大风图 | A song called Trailerhood. #CocaCola
 2020 | 男人三段图 | The young, the middle age, the old, for the novel I wrote. #CocaCola #triple
-2020 | 爱迪生坐图 | Edison. Remake of the cover of "家常菜组图". #CocaCola
-2021 | 宫保鸡丁图 | Kong po chicken with a Coke. #CocaCola
-2021 | 咕老肉汁图 | Sweet and sour pork with a drink. Very orange. #CocaCola
-2021 | 离别晓风图 | A drawinig based on a Chinese poem about sending off a lover after a night of drinking. #CocaCola #triple
-2021 | 夏日亲水图 | A drawing inspired by two CocaCola tv commercials. #CocaCola 
+2020 | [爱迪生坐图](https://flickr.com/photos/192540500@N04/51308181036/) | Edison. Remake of the cover of "家常菜组图". #CocaCola
+2021 | [宫保鸡丁图](https://flickr.com/photos/192540500@N04/51308901394/) | Kong po chicken with a Coke. #CocaCola
+2021 | [咕老肉汁图](https://flickr.com/photos/192540500@N04/51308901574/) | Sweet and sour pork with a drink. Very orange. #CocaCola
+2021 | [离别晓风图](https://flickr.com/photos/192540500@N04/51314618843/) | A drawinig based on a Chinese poem about sending off a lover after a night of drinking. #CocaCola #triple
+2021 | [夏日亲水图](https://flickr.com/photos/192540500@N04/51308180956/) | A drawing inspired by two CocaCola tv commercials. #CocaCola 
  
 UPDATED ON 0713/152021
 
