@@ -374,6 +374,8 @@ _I am interested in the study of classic time._
 
 ## novels
 
+### Chinese
+
 - 2017
 
 **科夫格林霍得**
@@ -395,8 +397,6 @@ _I was writing a novel called “British countryside”. I wanted to go hunting.
 [link](https://covelzeli1990.wordpress.com/2019/08/08/mouth-and-ass/)
 
 _I started writing the draft on a notebook on a high-speed train. I was writing all in English and suddenly wanted to write something in Chinese, thinking about the famous Chinese writers._
-
-### Chinese
 
 ### English
 
