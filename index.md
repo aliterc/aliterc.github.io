@@ -352,7 +352,7 @@ _EVENT: Hockey game tour backs British Hockey teams_
 
 **NYU application 2015**
 
-[link](https://covelzeli1990.wordpress.com/2015/11/)
+[link](https://covelzeli1990.wordpress.com/2015/11/01/nyu-application-2015/)
 
 _I applied for NYU art school in 2015._
 
@@ -360,7 +360,7 @@ _I applied for NYU art school in 2015._
 
 **The new production blog 0714-2**
 
-[link](https://wordpress.com/post/covelzeli1990.wordpress.com/4261)
+[link](https://covelzeli1990.wordpress.com/2017/07/15/the-new-production-blog-0714-2/)
 
 _I was learning Zbrush._
 
