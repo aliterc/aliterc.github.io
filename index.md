@@ -326,9 +326,75 @@ _And, a lot of drinks._
 
 ## news
 
+_Most of my reports were written in 2012._
+
+- 2012
+
+**Portfolio**
+
+[link](https://aliterc.github.io/zeli_portfolio_news)
+
+_OPINION: Will same sex marriage put an end to prejudice against sexuality?_
+
+_TECH: World War One evidences being digitalised by national library_
+
+_LEISURE: World Alternative Games 2012 hosted in UK’s smallest town_
+
+_BUSINESS: Circuit of Wales could create more than 6,000 jobs_
+
+_SPORTS: Cardiff City faces possible rebranding crisis_
+
+_EVENT: Hockey game tour backs British Hockey teams_
+
 ## essays and blogs
 
+- 2015
+
+**NYU application 2015**
+
+[link](https://covelzeli1990.wordpress.com/2015/11/)
+
+_I applied for NYU art school in 2015._
+
+- 2017
+
+**The new production blog 0714-2**
+
+[link](https://wordpress.com/post/covelzeli1990.wordpress.com/4261)
+
+_I was learning Zbrush._
+
+- 2018
+
+**西方古典时代**
+
+[link](https://covelzeli1990.wordpress.com/2018/05/01/classic/)
+
+_I am interested in the study of classic time._
+
 ## novels
+
+- 2017
+
+**科夫格林霍得**
+
+_It's a fiction._
+
+- 2018
+
+**寻枪**
+
+[link](https://covelzeli1990.wordpress.com/2018/05/01/searching-for-a-lost-gun/)
+
+_I was writing a novel called “British countryside”. I wanted to go hunting. One of my friends is police so I somehow got inspired to write this Chinese novel from the Turkish movie Once Upon a Time in Anatolia. I can’t remember how exactly I wrote this during long travelling._
+
+- 2019
+
+**嘴巴与屁股**
+
+[link](https://covelzeli1990.wordpress.com/2019/08/08/mouth-and-ass/)
+
+_I started writing the draft on a notebook on a high-speed train. I was writing all in English and suddenly wanted to write something in Chinese, thinking about the famous Chinese writers._
 
 ### Chinese
 
