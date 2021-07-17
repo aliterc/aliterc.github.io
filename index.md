@@ -405,15 +405,16 @@ Year | Name | Description
 2008 | 手绘图组图 | h100cm w150cm Student activities.
 2008 | 艺谋画卷图 | It was for the cover of a flier. It was from Yimou Zhang's opening of a painting thing. Later it became 3D in a video I made.
 2008 | 荷花南童图 | Four boys sit on lotus leaves, holding camera, computer, paint brush and pen.
-2009 | 政法景点图 | Using After Effects to make an introduction to a video.
+2009 | [政法景点图](https://v.youku.com/v_show/id_XNTA2NDIyODQ=.html?spm=a2hzp.8244740.0.0) | Using After Effects to make an introduction to a video.
 2009 | 新标识组图 | I designed some logos. 
 2009 | 过节日组图 | Teamwork of post design.
 2009 | 政法牛雕图 | Tried to make an animal sculpture.
-2010 | 军队内宣图 | Visual effects including making silk crossing 3D logos, an envelope, the opening Chinese painting scroll, animated. 
+2010 | [军队内宣图](https://aliterc.github.io/images/2016/2010_video_camera_maya_after_effects_premiere.jpg)| Visual effects including making silk crossing 3D logos, an envelope, the opening Chinese painting scroll, animated. 
 2010 | 海蓝心蓝图 | A Chinese woman and a Chinese man's long struggling love story.
 2010 | 威廉大婚图 | Got a Wacom.
-2011 | Man in 30 | Got up early and shot some clips.
-2012 | Birthday girl | I had a scanner-printer.
+2011 | [男女火车图](https://aliterc.github.io/images/2016/2011_film_camera.jpg) | What you see is a bad printer work of a printed photo of a film camera. #portrait
+2011 | [Man in 30](https://vimeo.com/28314185) | Got up early and shot some clips.
+2012 | [Birthday girl](https://flickr.com/photos/192540500@N04/51049997337/) | I had a scanner-printer.
 2012 | Man, woman | Sketches.
 2012 | [Self portrait](https://aliterc.github.io/images/2016/2012_photoshop.jpg)| 
 Myself listen to music on a plane. I can't draw in Photoshop.
@@ -426,7 +427,7 @@ Myself listen to music on a plane. I can't draw in Photoshop.
 2009 | [乡村教师图](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0) | Beautiful scenery in western China.
 2013 | [Richard Mabey recipes visualization](https://www.youtube.com/user/CovelNeptune/videos) |  A Chinese woman cooks two Chinese dishes. 
 2013 | [冬去春来图](https://alitercovel.portfoliobox.net/showcase/tv) |  Beautiful scenery in Zhongnan mountain 终南山 in China. #seasons
-2011 | 政法植树图 | I was trying to make trees in 3Ds Max. I also know how many trees and their locations in the school. #plants
+2011 | [政法植树图](https://web.archive.org/web/20120620025635/http:/60.cupl.edu.cn/3D/) | I was trying to make trees in 3Ds Max. I also know how many trees and their locations in the school. #plants
 2017 | [男人头像图](https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg) | I tried to make an animated tree man in 3D software. It ended up like this. #plants #human
 2017 | 长白天山图 | An attempt to document forests in China's northmost border region. I fell in love with trees. #plants
 2018 | Billy Yin | A story about three Chinese men at the age of 20, 50, 70. #fiction
@@ -451,7 +452,7 @@ Myself listen to music on a plane. I can't draw in Photoshop.
 2016 | 厦门下雨图 | Remake of the last picture. #CocaCola
 2016 | [The wild](https://www.behance.net/gallery/42215663/Coca-cola) | A cartoon in black and white Chinese ink. Oringinal story. Written and directed by Ze Covel Li. #CocaCola #triple
 2016 | [可乐五组图](https://www.behance.net/gallery/43012309/Coca-Cola) | Color pencil of my ideas of advertising 1.25L Coke. #CocaCola
-2016 | 福建的林图 | Lots of advertisements in one video about Rio Olympics. #CocaCola #Skittle
+2016 | [福建的林图](https://www.youtube.com/user/CovelNeptune/videos) | Lots of advertisements in one video about Rio Olympics. #CocaCola #Skittle
 2017 | [农民四季图](https://www.behance.net/gallery/48171765/Binding-3) | Circle of food growing in a year. #CocaCola #triple
 2017 | [Wong Yong and Zhu Chen](https://www.behance.net/allenenterbreak) | Monthly cartoon in digital color. Oringinal story. #CocaCola #triple
 2017 | [家常菜组图](https://www.youtube.com/user/CovelNeptune/videos) | Illustrations. I can't use a mouse to draw in Illustrator. I appraoched soome CocaCola staff and told them about my idea of selling the drinks, CocaCola + Chinese food. #CocaCola
