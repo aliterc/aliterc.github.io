@@ -415,21 +415,38 @@ Year | Name | Description
 2011 | [男女火车图](https://aliterc.github.io/images/2016/2011_film_camera.jpg) | What you see is a bad printer work of a printed photo of a film camera. #portrait
 2011 | [Man in 30](https://vimeo.com/28314185) | Got up early and shot some clips.
 2012 | [Birthday girl](https://flickr.com/photos/192540500@N04/51049997337/) | I had a scanner-printer.
-2012 | Man, woman | Sketches.
-2012 | [Self portrait](https://aliterc.github.io/images/2016/2012_photoshop.jpg)| 
-Myself listen to music on a plane. I can't draw in Photoshop.
-2012 | Johan in fish belly | I found it hard to draw this Bible stories. I do have more Bible stories drawn in 2014. I printed out this picture to be postcards and got them sent.
-2013 | Anna with her mother| I can't remember why I drew it.
-2013 | French man| A French worker taught me a little French.
-2013 | 迎接马年图 | Horse related Bible story.
+2012 | [Man, woman](https://covelzeli1990.files.wordpress.com/2021/03/fb_img_1615883931418.jpg) | Sketches.
+2012 | [Self portrait](https://aliterc.github.io/images/2016/2012_photoshop.jpg)|Myself listen to music on a plane. I can't draw in Photoshop.
+2012 | [gold head of mine](https://aliterc.github.io/images/2016/2012_maya.jpg)|Scuplted a head in Maya.
+2012 | [Johan in fish belly](https://covelzeli1990.files.wordpress.com/2021/03/fb_img_1615883657005.jpg?resize=219%2C219) | I found it hard to draw this Bible stories. I do have more Bible stories drawn in 2014. I printed out this picture to be postcards and got them sent.
+2013 |[Welsh town in winter]| A Welsh town in winter. Pefect train trip.
+2013 | [Anna with her mother](https://covelzeli1990.files.wordpress.com/2020/02/ang1.jpg?resize=219%2C219)| I can't remember why I drew it.
+2013 | [French man](https://covelzeli1990.files.wordpress.com/2020/02/20130901-191558.jpg?resize=219%2C219)| A French worker taught me a little French.
+2013 | [迎接马年图](https://covelzeli1990.files.wordpress.com/2021/03/fb_img_1615883665907.jpg) | Horse related Bible story.
 2014 | Bible stories| More pictures based on parts of the Bible. I can't draw very well.
-2009 | 汴京欢庆图 | 3D objects by Maya, lighting and 3D layers in After Effects
+2014 |[西洋男女图](https://aliterc.github.io/images/2016/2014_phone_app.jpg)| A detailed that hasn't been filmed in the movie. ["my texts, your images"](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
+2014 |[水果扁豆图](https://aliterc.github.io/images/2016/2014_photoshop.jpg)|I don't know why I drew it.
+2016 |[洋大蛋糕图](https://aliterc.github.io/images/2016/2016_phone_app3.jpg) | Adobe stopped its Draw app. Cheese, pineapple and rose, red bean. #McDonalds #triple
+2017 |[军队制服图](https://aliterc.github.io/images/2016/2017_phone_app2.jpg)|It was from Hugo Boss advertisements' poses. #portrait
+2018 |[蓝钻银饰图](https://aliterc.github.io/images/2016/2018_phone_app.jpg)|I found how they drew jewellery on Christian Dior's webbsite. So I drew one. I have been thinking of becoming a goldsmiths for a while. Is VFX like old crafts?
+2018 |[黑衣白衣图](https://aliterc.github.io/images/2016/2018_watercolor.jpg)|It was Russell Crowe in a Versase and his guard in an H&M grey short sleeve with a rose red belt. #portrait
+2019 |[赤膊男人图] (https://aliterc.github.io/images/2016/2020_watercolor.jpg)| A Thai cook, topless, sits. It was for a novel I wrote. #portrait ["my texts, your images"](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
+2020 |[三鲜伊面图](https://aliterc.github.io/images/2016/2020_watercolor2.jpg)| What a nice photo on the package.
+2021 |[画眉闲趣图](https://aliterc.github.io/images/2016/2021_watercolor.jpg)|It's a thrush! Later there might be a 3D bird. Animals are our friends. 
+2012 |[Homeless person](https://covelzeli1990.files.wordpress.com/2012/03/p1030214.jpg)| I was doing street photography and we document homeless people. A smaller camera is better for this task.
+2012 |[An Asian monk](https://covelzeli1990.files.wordpress.com/2017/11/12.jpg)| I was inside the gare and met this person. #portrait
+2017 |[三男一童图](https://covelzeli1990.files.wordpress.com/2018/05/screenshot_2018-05-13-14-45-26-1.png)|My rented room was clean and I was thinking of making clothes. NYT had an article about fashion photographer Chen Man. #portrait
+2018 |[圣马克裸图](https://covelzeli1990.files.wordpress.com/2018/05/20180523_230204.jpg)|First cover of the magazine Wong Yong and Zhu Chen. It is someone in need of money and sex. Later it had been redrawn on a larger paper but not good.
+2018 |[远离地表图](https://covelzeli1990.files.wordpress.com/2018/06/sketch1528086298147.png)|Another cover of the magazine mentioned above. ["my texts, your images"](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
+2017 |[魔鬼天使图](https://covelzeli1990.files.wordpress.com/2018/06/eye2.png)|I was applying for NYU again and wrote a story about a teacher who crosses Shanghai- Ningbo bridge and falls into the sea. Some car chasing, explosion David Cameron thing. ["my texts, your images"](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
+2018 |[小车沉水图](https://covelzeli1990.files.wordpress.com/2018/06/eye3.png)|I was applying for NYU again and wrote a story about a teacher who crosses Shanghai- Ningbo bridge and falls into the sea. Some car chasing, explosion David Cameron thing. ["my texts, your images"](https://covelzeli1990.wordpress.com/2021/06/25/tech-who-gets-paid-most-in-a-film/)
+2009 | [汴京欢庆图](https://covelzeli1990.files.wordpress.com/2021/02/2009-1.jpg?resize=219%2C219) | 3D objects by Maya, lighting and 3D layers in After Effects
 2009 | [乡村教师图](https://v.youku.com/v_show/id_XMTIxNTA1NDA4.html?spm=a2hzp.8244740.0.0) | Beautiful scenery in western China.
-2013 | [Richard Mabey recipes visualization](https://www.youtube.com/user/CovelNeptune/videos) |  A Chinese woman cooks two Chinese dishes. 
+2013 | [Richard Mabey recipes visualization](https://www.youtube.com/user/CovelNeptune/videos) | A Chinese woman cooks two Chinese dishes. 
 2013 | [冬去春来图](https://alitercovel.portfoliobox.net/showcase/tv) |  Beautiful scenery in Zhongnan mountain 终南山 in China. #seasons
 2011 | [政法植树图](https://web.archive.org/web/20120620025635/http:/60.cupl.edu.cn/3D/) | I was trying to make trees in 3Ds Max. I also know how many trees and their locations in the school. #plants
 2017 | [男人头像图](https://covelzeli1990.files.wordpress.com/2020/12/zbrush-document-1.jpg) | I tried to make an animated tree man in 3D software. It ended up like this. #plants #human
-2017 | 长白天山图 | An attempt to document forests in China's northmost border region. I fell in love with trees. #plants
+2017 | [长白天山图](https://covelzeli1990.files.wordpress.com/2020/12/xlarge_c3mt_629c0004467b1e84.jpg) | An attempt to document forests in China's northmost border region. I fell in love with trees. #plants
 2018 | Billy Yin | A story about three Chinese men at the age of 20, 50, 70. #fiction
 2014 | 大宋少药文 | A script of the story of a Chinese writer who helps police to tackle crime.
 2020 | mf of China | Articles about latest research on selected mountains in China. #mountains #forests #nature
@@ -440,7 +457,7 @@ Myself listen to music on a plane. I can't draw in Photoshop.
 2008 | 可口可乐北京校园经理销售比赛 | Two of my classmates helped. One gave ideas and the other gave time. #CocaCola
 2011 | 橙汁面条图 | Off focus food porn photo by a film camera. #CocaCola
 2014 | Oxford apple tree | An animation for my website. #CocaCola
-2014 | 西洋火车图 | Draig dw i. #CocaCola
+2014 | [西洋火车图](https://covelzeli1990.files.wordpress.com/2021/03/fb_img_1615883566185.jpg) | Draig dw i. #CocaCola
 2015 | [海洋鱼类图](https://www.behance.net/gallery/28213223/illustration-for-a-cooking-book) | Fishes. Photoshop. My boss was a CocaCola salesman. He wanted to teach me to be a salesman. #CocaCola
 2015 | 美女汽水图 | NYU application video. #CocaCola
 2016 | [西洋面包图](https://www.behance.net/gallery/36880921/RT-new-products-post-with-a-movie) | A cinnamon roll. #CocaCola
@@ -472,7 +489,7 @@ Myself listen to music on a plane. I can't draw in Photoshop.
 2021 | [咕老肉汁图](https://flickr.com/photos/192540500@N04/51308901574/) | Sweet and sour pork with a drink. Very orange. #CocaCola
 2021 | [离别晓风图](https://flickr.com/photos/192540500@N04/51314618843/) | A drawinig based on a Chinese poem about sending off a lover after a night of drinking. #CocaCola #triple
 2021 | [夏日亲水图](https://flickr.com/photos/192540500@N04/51308180956/) | A drawing inspired by two CocaCola tv commercials. #CocaCola 
- 
+
 UPDATED ON 0713/152021
 
 BELOW ARE MY CV
